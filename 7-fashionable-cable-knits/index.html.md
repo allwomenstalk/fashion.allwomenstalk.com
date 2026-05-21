@@ -3,7 +3,7 @@ title: "7 Fashionable Cable Knits ..."
 description: "Topshop Knitted Apricot Cotton Cable Jumper; Doo.Ri Exaggerated Cable Cardigan; Marc by Marc Jacobs Sinead Cable Knit Cotton Sweater; Ralph Lauren Black Label Cable Knit Cashmere Sweater; Topshop Knitted Cable Yoke Crop Top; More ..."
 url: "https://fashion.allwomenstalk.com/7-fashionable-cable-knits/"
 category: "fashion"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Fashionable Cable Knits ...
@@ -62,15 +62,15 @@ Cable knits come in a range of designs and can be styled in a myriad of ways. Th
 ## Related Posts
 
 - [My Sweater Coat Obsession](https://allwomenstalk.com/my-sweater-coat-obsession/)
-- [sweater hot](https://fashion.allwomenstalk.com/warm-but-seriously-sexy-sweaters/)
-- [fashion fur vests](https://fashion.allwomenstalk.com/stylish-faux-fur-vests/)
-- [cute tees](https://fashion.allwomenstalk.com/cute-tees-for-fall/)
-- [7 Skirts for Fall ...](https://fashion.allwomenstalk.com/skirts-for-fall/)
-- [8 Long Sleeved Dresses for Winter ...](https://fashion.allwomenstalk.com/long-sleeved-dresses-for-winter/)
-- [cute coats](https://fashion.allwomenstalk.com/7-cute-coats-by-knitted-dove/)
 - [8 Amazingly Chic and Fabulous Tips for a Great Win...](https://fashion.allwomenstalk.com/amazingly-chic-and-fabulous-tips-for-a-great-winter-style/)
+- [cute coats](https://fashion.allwomenstalk.com/7-cute-coats-by-knitted-dove/)
+- [7 Skirts for Fall ...](https://fashion.allwomenstalk.com/skirts-for-fall/)
 - [lightweight scarves](https://fashion.allwomenstalk.com/7-best-lightweight-scarves-for-spring/)
+- [fashion fur vests](https://fashion.allwomenstalk.com/stylish-faux-fur-vests/)
+- [8 Long Sleeved Dresses for Winter ...](https://fashion.allwomenstalk.com/long-sleeved-dresses-for-winter/)
 - [kristen blake fur vest](https://fashion.allwomenstalk.com/super-stylish-faux-fur-vests/)
+- [cute tees](https://fashion.allwomenstalk.com/cute-tees-for-fall/)
+- [sweater hot](https://fashion.allwomenstalk.com/warm-but-seriously-sexy-sweaters/)
 - [7 Cute Arm Warmers ...](https://allwomenstalk.com/7-cute-arm-warmers/)
 - [7 Funky Socks and Tights ...](https://allwomenstalk.com/7-funky-socks-and-tights/)
 

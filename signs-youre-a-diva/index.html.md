@@ -3,7 +3,7 @@ title: "8 Signs Youre a Diva ..."
 description: "A Mirror is Your Best Friend; You Love Sparkles; You Crave Attention; Facebook Has Hundreds of Pictures of You; You're Never Seen without Makeup; More ..."
 url: "https://fashion.allwomenstalk.com/signs-youre-a-diva/"
 category: "fashion"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Signs Youre a Diva ...
@@ -49,13 +49,13 @@ As you have probably now guessed, by these 8 signs you're a diva, the current de
 - [hormones out of wack](https://health.allwomenstalk.com/signs-your-hormones-are-out-of-whack/)
 - [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
 - [signs you maybe pregnant](https://parenting.allwomenstalk.com/signs-you-may-be-pregnant/)
-- [struggling to isolate lashes](https://lifestyle.allwomenstalk.com/alarming-signs-you-are-struggling-with-addiction/)
-- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
 - [how to tell if someone is wearing makeup](https://makeup.allwomenstalk.com/signs-that-you-wear-too-much-makeup/)
+- [signs of being a workaholic](https://lifestyle.allwomenstalk.com/obvious-signs-you-are-a-workaholic/)
 - [whats my hair color](https://hair.allwomenstalk.com/signs-that-you-need-a-hair-color-change/)
 - [am i rude](https://health.allwomenstalk.com/alarming-signs-you-are-being-rude/)
-- [signs of being a workaholic](https://lifestyle.allwomenstalk.com/obvious-signs-you-are-a-workaholic/)
 - [im a 90s chick](https://lifestyle.allwomenstalk.com/sure-signs-that-youre-a-90s-chick/)
+- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
+- [struggling to isolate lashes](https://lifestyle.allwomenstalk.com/alarming-signs-you-are-struggling-with-addiction/)
 - [10 Signs You Might Be a Slut ...](https://love.allwomenstalk.com/signs-you-might-be-a-slut/)
 - [10 Signs Its Time for a Divorce ...](https://allwomenstalk.com/10-signs-its-time-for-a-divorce/)
 

@@ -3,7 +3,7 @@ title: "7 Unlikely Celebrity Style Icons ..."
 description: "Victoria Beckham; Kanye West; Detective Sarah Lund; Mary Berry; Alexa Chung; More ..."
 url: "https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/"
 category: "fashion"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Unlikely Celebrity Style Icons ...
@@ -44,14 +44,14 @@ Perhaps it’s not what you wear that matters, but rather how you wear it. Maybe
 
 - [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
 - [celebrities that give back](https://celebs.allwomenstalk.com/celebrities-who-give-back/)
-- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
-- [will demps wife](https://celebs.allwomenstalk.com/hottest-football-stars/)
-- [famous tv parents](https://celebs.allwomenstalk.com/celebrities-who-are-only-famous-because-of-their-parents/)
 - [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
-- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
+- [will demps wife](https://celebs.allwomenstalk.com/hottest-football-stars/)
+- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
 - [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
-- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
 - [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
+- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
+- [famous tv parents](https://celebs.allwomenstalk.com/celebrities-who-are-only-famous-because-of-their-parents/)
+- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 

@@ -3,7 +3,7 @@ title: "Celebrating Iconic Women: Coco de Mer and Dame Denise Lewis Campaign"
 description: "Dame Denise Lewis: A Living Icon Reimagined; The Icons Collection: More Than Lingerie; Celebrating Every Stage: Evolution in Motion; Iconic Movement: Paving the Way for Future Greats; More ..."
 url: "https://fashion.allwomenstalk.com/icons-collection-coco-de-mer-female-power/"
 category: "fashion"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Celebrating Iconic Women: Coco de Mer and Dame Denise Lewis Campaign
