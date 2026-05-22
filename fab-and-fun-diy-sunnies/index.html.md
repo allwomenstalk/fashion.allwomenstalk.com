@@ -3,7 +3,7 @@ title: "10 Fab and Fun DIY Sunnies ..."
 description: "D&G-Inspired; Polka Dot; Mod-Podged; Pearly; Studded; More ..."
 url: "https://fashion.allwomenstalk.com/fab-and-fun-diy-sunnies/"
 category: "fashion"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 10 Fab and Fun DIY Sunnies ...
@@ -94,16 +94,16 @@ Aren't these **DIY sunnies** fun? Hope you find inspiration from this DIY list! 
 
 ## Related Posts
 
+- [shell decoration ideas](https://lifestyle.allwomenstalk.com/beautiful-diy-shell-decor-projects/)
+- [9 Pretty Nautical Style Pieces to DIY ...](https://lifestyle.allwomenstalk.com/pretty-nautical-style-pieces-to-diy/)
+- [crafts using autumn leaves](https://diy.allwomenstalk.com/fun-crafts-using-autumn-leaves/)
 - [10 Gorgeous DIY Gilded Craft Projects ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-gilded-craft-projects/)
 - [anchor crafts](https://fashion.allwomenstalk.com/gorgeous-diy-anchor-accessories/)
-- [7 Creative DIY Sneaker Tutorials ...](https://shoes.allwomenstalk.com/creative-diy-sneaker-tutorials/)
-- [8 Incredible DIYs with Polymer Clay ...](https://diy.allwomenstalk.com/incredible-diys-with-polymer-clay/)
-- [9 Pretty Nautical Style Pieces to DIY ...](https://lifestyle.allwomenstalk.com/pretty-nautical-style-pieces-to-diy/)
 - [11 Cute and Creative DIY Cup Cozies ...](https://diy.allwomenstalk.com/cute-and-creative-diy-cup-cozies/)
-- [crafts using autumn leaves](https://diy.allwomenstalk.com/fun-crafts-using-autumn-leaves/)
-- [10 Darling DIY Doormats ...](https://lifestyle.allwomenstalk.com/darling-diy-doormats/)
 - [10 Adorable Cat DIY Projects ...](https://diy.allwomenstalk.com/adorable-cat-diy-projects/)
-- [shell decoration ideas](https://lifestyle.allwomenstalk.com/beautiful-diy-shell-decor-projects/)
+- [8 Incredible DIYs with Polymer Clay ...](https://diy.allwomenstalk.com/incredible-diys-with-polymer-clay/)
+- [10 Darling DIY Doormats ...](https://lifestyle.allwomenstalk.com/darling-diy-doormats/)
+- [7 Creative DIY Sneaker Tutorials ...](https://shoes.allwomenstalk.com/creative-diy-sneaker-tutorials/)
 - [8 Chic Trendy Shades ...](https://fashion.allwomenstalk.com/8-chic-trendy-shades/)
 - [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
 

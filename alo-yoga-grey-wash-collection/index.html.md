@@ -3,7 +3,7 @@ title: "Whats the Buzz About Alo Yogas Latest Grey Wash Line?"
 description: "The Charm of Elegance; Why Grey Wash?; The Classic Lounge Legging; Versatility at its Best; Bringing It All Together; More ..."
 url: "https://fashion.allwomenstalk.com/alo-yoga-grey-wash-collection/"
 category: "fashion"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Whats the Buzz About Alo Yogas Latest Grey Wash Line?

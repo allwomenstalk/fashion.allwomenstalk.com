@@ -3,7 +3,7 @@ title: "IG Goddess Turns Haitian Beauty into NYC Fashion and Its Unbelievable! .
 description: "#1; #2; #3; #4; #5; More ..."
 url: "https://fashion.allwomenstalk.com/ig-goddess-turns-haitian-beauty-into-nyc-fashion-and-its-unbelievable/"
 category: "fashion"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # IG Goddess Turns Haitian Beauty into NYC Fashion and Its Unbelievable! ...
@@ -62,16 +62,16 @@ Paola "Pao Pao" Mathé has transferred her own Haitian style to NYC and the city
 
 ## Related Posts
 
+- [shay mitchell look alike](https://fashion.allwomenstalk.com/shay-mitchells-style-inspiration/)
+- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
 - [winter street style new york](https://streetstyle.allwomenstalk.com/the-latest-nyc-street-style/)
-- [pictures of audrey hepburn](https://fashion.allwomenstalk.com/50-pictures-of-audrey-hepburn/)
+- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
 - [why is karl lagerfeld famous](https://fashion.allwomenstalk.com/remembering-karl-lagerfeld-a-true-fashion-icon-in-every-sense/)
 - [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
 - [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
-- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
-- [models size 8](https://fashion.allwomenstalk.com/truths-about-plus-size-modeling-revealed/)
-- [shay mitchell look alike](https://fashion.allwomenstalk.com/shay-mitchells-style-inspiration/)
-- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
 - [clothing inventions](https://fashion.allwomenstalk.com/fashion-inventions-that-changed-the-world/)
+- [pictures of audrey hepburn](https://fashion.allwomenstalk.com/50-pictures-of-audrey-hepburn/)
+- [models size 8](https://fashion.allwomenstalk.com/truths-about-plus-size-modeling-revealed/)
 - [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 

@@ -3,7 +3,7 @@ title: "7 Sporty Dresses for Working the Athletic Trend in Style ..."
 description: "T by Alexander Wang T-shirt Dress; Topshop Sports Trim Bodycon Dress; Rebecca Minkoff Striped Sweater Dress; Forever 21 Soft Knit Skater Dress; Topshop Zip Front Bodycon Dress; More ..."
 url: "https://fashion.allwomenstalk.com/sporty-dresses-for-working-the-athletic-trend-in-style/"
 category: "fashion"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Sporty Dresses for Working the Athletic Trend in Style ...
@@ -56,16 +56,16 @@ Add an athletic inspired twist to your outfits with these sporty dresses. Styles
 
 ## Related Posts
 
-- [stunning wedding dresses](https://wedding.allwomenstalk.com/stunning-wedding-gowns-that-will-take-your-breath-away/)
 - [stylish coat dress](https://fashion.allwomenstalk.com/beautiful-coat-dresses-that-will-make-you-feel-like-a-royal/)
 - [shes all that laney outfits](https://movies.allwomenstalk.com/memorable-prom-dresses-in-the-movies/)
-- [night dress summer](https://fashion.allwomenstalk.com/pretty-night-dresses-for-hot-summer-nights/)
-- [kimono lolita dress](https://fashion.allwomenstalk.com/adorable-lolita-dresses/)
-- [soroity initiation](https://teen.allwomenstalk.com/dresses-that-are-perfect-for-sorority-initiation/)
 - [dress from indecent proposal](https://fashion.allwomenstalk.com/captivating-cut-out-dresses-you-can-pick-up-at-nordstrom/)
+- [night dress summer](https://fashion.allwomenstalk.com/pretty-night-dresses-for-hot-summer-nights/)
 - [dress for wide hips](https://wedding.allwomenstalk.com/wedding-dress-styles-that-are-absolutely-beautiful/)
+- [stunning wedding dresses](https://wedding.allwomenstalk.com/stunning-wedding-gowns-that-will-take-your-breath-away/)
 - [popular homecoming dresses](https://teen.allwomenstalk.com/stunning-homecoming-dresses/)
+- [soroity initiation](https://teen.allwomenstalk.com/dresses-that-are-perfect-for-sorority-initiation/)
 - [tracy reese dresses nordstrom](https://fashion.allwomenstalk.com/great-wrap-dresses-you-can-find-at-nordstrom/)
+- [kimono lolita dress](https://fashion.allwomenstalk.com/adorable-lolita-dresses/)
 - [7 Stylish Items for the Office ...](https://fashion.allwomenstalk.com/stylish-items-for-the-office/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 

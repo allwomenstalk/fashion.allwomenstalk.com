@@ -3,7 +3,7 @@ title: "Chloe and Augustinus Bader Redefine Runway Beauty at Paris Fashion Week"
 description: "The Radiance Ritual: Backstage Skincare Preparation; Step 2: The Hydrogel Face Mask ($32 single / $180 pack of 6) – Instant Hydration & Plumping; The Powerhouses Behind the Collaboration; The Future of Runway Beauty; More ..."
 url: "https://fashion.allwomenstalk.com/chloe-augustinus-bader-pfw-2025/"
 category: "fashion"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Chloe and Augustinus Bader Redefine Runway Beauty at Paris Fashion Week

@@ -3,7 +3,7 @@ title: "9 Fashion Models Turned Fashion Designers ..."
 description: "Alessandra Ambrosio; Lily Aldridge; Kate Moss; Freja Beha Erichsen; Sophie Dahl; More ..."
 url: "https://fashion.allwomenstalk.com/fashion-models-turned-fashion-designers/"
 category: "fashion"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Fashion Models Turned Fashion Designers ...
@@ -68,16 +68,16 @@ These are just some models who have taken a turn at designing their own fashion 
 
 ## Related Posts
 
-- [ashley benson look alike](https://streetstyle.allwomenstalk.com/street-style-looks-from-ashley-benson-that-are-totally-fab/)
-- [emma roberts look](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-emma-roberts/)
-- [jessica alba body type](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-jessica-alba/)
 - [easy taylor swift outfits](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-taylor-swift-to-recreate-this-spring/)
-- [emma watson everyday style](https://celebs.allwomenstalk.com/incredible-street-style-looks-from-emma-watson/)
-- [elle fanning clothes](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-elle-fanning/)
 - [vanessa hudgens looks](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-vanessa-hudgens/)
-- [kate middleton best outfits](https://fashion.allwomenstalk.com/of-kate-middletons-best-outfits-from-the-royal-tour/)
 - [preppy tv shows](https://movies.allwomenstalk.com/fashionable-tv-shows-every-fashionista-needs-to-be-watching/)
 - [lauren conrad voice change](https://streetstyle.allwomenstalk.com/awesome-street-style-looks-from-lauren-conrad/)
+- [emma watson everyday style](https://celebs.allwomenstalk.com/incredible-street-style-looks-from-emma-watson/)
+- [kate middleton best outfits](https://fashion.allwomenstalk.com/of-kate-middletons-best-outfits-from-the-royal-tour/)
+- [jessica alba body type](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-jessica-alba/)
+- [elle fanning clothes](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-elle-fanning/)
+- [emma roberts look](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-emma-roberts/)
+- [ashley benson look alike](https://streetstyle.allwomenstalk.com/street-style-looks-from-ashley-benson-that-are-totally-fab/)
 - [9 Fall Fashion Trends of 2011 ...](https://fashion.allwomenstalk.com/fall-fashion-trends-of/)
 - [8 Incredibly Gorgeous Top Fashion Models of All Ti...](https://fashion.allwomenstalk.com/incredibly-gorgeous-top-fashion-models-of-all-time/)
 
