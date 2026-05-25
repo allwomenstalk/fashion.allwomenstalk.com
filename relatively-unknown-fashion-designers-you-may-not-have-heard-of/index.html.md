@@ -3,7 +3,7 @@ title: "7 Relatively Unknown Fashion Designers You May Not Have Heard of ..."
 description: "Noritaka Tatehana; Isabell Yalda Hellysaz; Sorcha O'Raghallaigh; Francesco Scognamiglio; Kermit Tesoro; More ..."
 url: "https://fashion.allwomenstalk.com/relatively-unknown-fashion-designers-you-may-not-have-heard-of/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Relatively Unknown Fashion Designers You May Not Have Heard of ...
@@ -32,7 +32,7 @@ Sorcha O'Raghallaigh designs a small avant garde collection each season. Since e
 
 ![Francesco Scognamiglio](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/fashion/2013/07/4_francesco-scognamiglio_320x480.jpg)
 
-Francesco Scognamiglio opened his first atelier when he was just [23 years old](https://lifestyle.allwomenstalk.com/things-you-learn-when-hanging-out-with-a-23-year-old/), and since then his career has been on the rise. He loves designing collections for the "ideal woman," someone who is a "modern icon of strength." His fashion is very experimental because he takes the principles of traditional design and juxtaposes them with avant garde inspirations. His work is truly phenomenal! Celebrities like Madonna just can't get enough of his work.
+Francesco Scognamiglio opened his first atelier when he was just 23 years old, and since then his career has been on the rise. He loves designing collections for the "ideal woman," someone who is a "modern icon of strength." His fashion is very experimental because he takes the principles of traditional design and juxtaposes them with avant garde inspirations. His work is truly phenomenal! Celebrities like Madonna just can't get enough of his work.
 
 ## 5. Kermit Tesoro
 
@@ -56,16 +56,16 @@ It's time to put these unknown fashion designers on your radar if you haven't al
 
 ## Related Posts
 
-- [lauren conrad outfit](https://fashion.allwomenstalk.com/of-lauren-conrads-best-looks-that-we-love/)
-- [katy perry iconic outfits](https://fashion.allwomenstalk.com/of-katy-perrys-best-looks-that-will-make-you-swoon/)
-- [keten banana cleaner](https://fashion.allwomenstalk.com/crucial-reasons-to-stop-idolizing-fashion-magazines/)
-- [marion cotillard fashion](https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/)
-- [zooey deschanel young pictures](https://fashion.allwomenstalk.com/fashion-icons-your-daughter-should-look-up-to/)
 - [nicki minaj style clothes](https://celebs.allwomenstalk.com/absolutely-crazy-nicki-minaj-outfits-that-youd-have-to-see-to-believe/)
 - [kate middleton in pink](https://fashion.allwomenstalk.com/of-kate-middletons-best-fashion-looks-that-we-cant-get-over/)
+- [katy perry iconic outfits](https://fashion.allwomenstalk.com/of-katy-perrys-best-looks-that-will-make-you-swoon/)
 - [kerry washington stylist](https://fashion.allwomenstalk.com/fabulous-outfits-worn-by-kerry-washington/)
+- [marion cotillard fashion](https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/)
 - [fashion lines](https://celebs.allwomenstalk.com/celebrity-fashion-lines-that-are-super-successful/)
+- [lauren conrad outfit](https://fashion.allwomenstalk.com/of-lauren-conrads-best-looks-that-we-love/)
+- [keten banana cleaner](https://fashion.allwomenstalk.com/crucial-reasons-to-stop-idolizing-fashion-magazines/)
 - [ethereal casual outfits](https://streetstyle.allwomenstalk.com/fashionable-street-style-pairs-the-new-street-style-trend/)
+- [zooey deschanel young pictures](https://fashion.allwomenstalk.com/fashion-icons-your-daughter-should-look-up-to/)
 - [10 Highly Influential and Most Famous Fashion Desi...](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
 - [7 Great Fashion Blogs ...](https://allwomenstalk.com/7-great-fashion-blogs/)
 

@@ -3,7 +3,7 @@ title: "9 Style Tips Inspired by Classic Fashion Icons ..."
 description: "Less is More; Oversized Sunglasses Are a Must; Arm Yourself with a Great Bag; Embrace Some Glitz and Glamour; Showcase Your Assets; More ..."
 url: "https://fashion.allwomenstalk.com/style-tips-inspired-by-classic-fashion-icons/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Style Tips Inspired by Classic Fashion Icons ...
@@ -44,7 +44,7 @@ When getting dressed, it’s important to know what works for your body. One exa
 
 ![Master the Art of Eyeliner](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/t8/m7/yxhf3n3y_600x814.jpg)
 
-Add a bold, dramatic edge to your look with some statement [winged eyeliner](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/). For classic style inspiration, you can’t beat Edie Sedgwick. Bold brows and artfully winged eyeliner were a key part of this 1960s It-girl’s look and it’s still one that’s popular with fashionistas today.
+Add a bold, dramatic edge to your look with some statement winged eyeliner. For classic style inspiration, you can’t beat Edie Sedgwick. Bold brows and artfully winged eyeliner were a key part of this 1960s It-girl’s look and it’s still one that’s popular with fashionistas today.
 
 ## 7. Show Some Shoulder
 
@@ -68,16 +68,16 @@ These are just some style tips inspired by classic fashion icons. While their he
 
 ## Related Posts
 
-- [wear ever jewelry](https://jewelry.allwomenstalk.com/tips-for-wearing-jewelry-to-the-beach/)
-- [boyfriend jeans with top](https://fashion.allwomenstalk.com/ways-to-wear-boyfriend-jeans-in-a-totally-stylish-manner/)
-- [what is colorblock](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-colorblock-trend/)
-- [oxfords outfits](https://streetstyle.allwomenstalk.com/street-style-outfits-with-oxfords-to-recreate/)
 - [seven dress street](https://streetstyle.allwomenstalk.com/street-style-ways-to-dress-like-blair-waldorf/)
-- [cute ways to wear bandanas](https://streetstyle.allwomenstalk.com/street-style-outfits-with-bandanas-to-recreate/)
+- [boyfriend jeans with top](https://fashion.allwomenstalk.com/ways-to-wear-boyfriend-jeans-in-a-totally-stylish-manner/)
 - [j jill outlet](https://fashion.allwomenstalk.com/best-ever-fashion-tips-for-elderly-women/)
 - [how to dress when you are short](https://fashion.allwomenstalk.com/fashion-dos-and-donts-if-you-have-short-legs/)
-- [what to wear under tulle skirt](https://streetstyle.allwomenstalk.com/street-style-outfits-with-tulle-skirts-to-recreate/)
+- [cute ways to wear bandanas](https://streetstyle.allwomenstalk.com/street-style-outfits-with-bandanas-to-recreate/)
 - [chic looking](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-business-chic/)
+- [oxfords outfits](https://streetstyle.allwomenstalk.com/street-style-outfits-with-oxfords-to-recreate/)
+- [what to wear under tulle skirt](https://streetstyle.allwomenstalk.com/street-style-outfits-with-tulle-skirts-to-recreate/)
+- [what is colorblock](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-colorblock-trend/)
+- [wear ever jewelry](https://jewelry.allwomenstalk.com/tips-for-wearing-jewelry-to-the-beach/)
 - [8 Best Fashion Tips of All Time ...](https://fashion.allwomenstalk.com/best-fashion-tips-of-all-time/)
 - [9 New Fashion Trends to Try ...](https://fashion.allwomenstalk.com/new-fashion-trends-to-try/)
 

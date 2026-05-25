@@ -3,7 +3,7 @@ title: "5 Gothic Fashion Trends Making a Mainstream Comeback ..."
 description: "Choker; Black Lipstick; Black Leather Jackets; Black Lace; Stack on the Black!; More ..."
 url: "https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 5 Gothic Fashion Trends Making a Mainstream Comeback ...
@@ -20,7 +20,7 @@ Chokers are in nearly every department store around. It was a trend in the 90’
 
 ![eyebrow, face, beauty, eyelash, lip,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/my/z5/o79zmslu59b52521d29b7877770120_600x600.jpg)
 
-Black lipstick is the finishing touch on any [goth look](https://fashion.allwomenstalk.com/how-every-woman-can-incorporate-gothic-elements-into-her-look/). Men and women alike have sported the mark of the goth on their faces with pride. Even in the 90’s, black lipstick was not necessarily a trendy topic, as the common lipstick color was more dark purple and frosty pink. This trend can again be attributed in to both Kylie and Kendall Jenner who sported the black lipstick in 2016 themselves on the fashion runway and in the real world. Rhianna is runner up for inspiring the world to embrace the bold look.
+Black lipstick is the finishing touch on any goth look. Men and women alike have sported the mark of the goth on their faces with pride. Even in the 90’s, black lipstick was not necessarily a trendy topic, as the common lipstick color was more dark purple and frosty pink. This trend can again be attributed in to both Kylie and Kendall Jenner who sported the black lipstick in 2016 themselves on the fashion runway and in the real world. Rhianna is runner up for inspiring the world to embrace the bold look.
 
 ## 3. Black Leather Jackets
 
@@ -45,15 +45,15 @@ Find a way to include all 5 in your closet and you will rock the goth fashion tr
 ## Related Posts
 
 - [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
-- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
-- [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
-- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
-- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
-- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
-- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
-- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
 - [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
+- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
+- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
+- [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
+- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
+- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
+- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
 - [7 Latest Fashion Trends to Try out ...](https://fashion.allwomenstalk.com/latest-fashion-trends-to-try-out/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 

@@ -3,7 +3,7 @@ title: "10 Gorgeous Evening Floral Dresses from Awbridal to Get on Sale Now"
 description: "AW Alison Multi Color Dress; AW Nicole Black Dress; AW Merbok Verdant Wilds Dress; AW Brodie Blazing Yellow Dress; AW Livia Black Dress; More ..."
 url: "https://fashion.allwomenstalk.com/10-gorgeous-evening-floral-dresses-awbridal-sale/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Gorgeous Evening Floral Dresses from Awbridal to Get on Sale Now

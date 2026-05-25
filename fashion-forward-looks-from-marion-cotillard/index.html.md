@@ -3,7 +3,7 @@ title: "9 Fashion Forward Looks from Marion Cotillard ..."
 description: "2009 Public Enemies London Movie Premiere; 2012 Dark Knight Rises London Movie Premiere; Christian Dior Haute Couture Paris Fashion Week 2012; 2013 Critics' Choice Awards; 2013 Maud Fontenoy Foundation Annual Gala; More ..."
 url: "https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Fashion Forward Looks from Marion Cotillard ...
@@ -68,16 +68,16 @@ This French beauty's fashion sense has landed her on the top of copious best dre
 
 ## Related Posts
 
-- [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
+- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
 - [stylish black and white outfits](https://streetstyle.allwomenstalk.com/chic-black-and-white-street-style-looks/)
 - [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
-- [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
-- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
-- [preppy actresses](https://fashion.allwomenstalk.com/most-fabulous-fashion-icons-for-prepsters/)
-- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
-- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
 - [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
+- [preppy actresses](https://fashion.allwomenstalk.com/most-fabulous-fashion-icons-for-prepsters/)
 - [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
+- [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
+- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
+- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
+- [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
 - [9 Fall Fashion Trends of 2011 ...](https://fashion.allwomenstalk.com/fall-fashion-trends-of/)
 - [14 Fabulous Looks from Cannes ...](https://allwomenstalk.com/14-fabulous-looks-from-cannes/)
 

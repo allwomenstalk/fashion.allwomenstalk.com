@@ -3,7 +3,7 @@ title: "Style Inspiration to Pull from Pitch Perfect 2 ..."
 description: "Gail’s Earrings; Beca’s Plaid Skirt; Go Girly with Dresses; Beca’s Leather Jackets; Go for the Classic Vest; More ..."
 url: "https://fashion.allwomenstalk.com/style-inspiration-to-pull-from-pitch-perfect/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Style Inspiration to Pull from Pitch Perfect 2 ...
@@ -56,16 +56,16 @@ How are you pulling inspiration from Pitch Perfect 2? Have you seen the movie ye
 
 ## Related Posts
 
-- [scarlett johansson fringe](https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/)
-- [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
-- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
-- [bad blood costumes](https://celebs.allwomenstalk.com/these-style-stars-killed-it-in-the-bad-blood-music-video/)
-- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
+- [kendall jenner 15 years old height](https://fashion.allwomenstalk.com/style-inspiration-to-steal-from-kendall-jenner/)
 - [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
 - [feminine menswear](https://streetstyle.allwomenstalk.com/menswear-inspired-street-style-looks-to-lust-after/)
-- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
-- [kendall jenner 15 years old height](https://fashion.allwomenstalk.com/style-inspiration-to-steal-from-kendall-jenner/)
+- [bad blood costumes](https://celebs.allwomenstalk.com/these-style-stars-killed-it-in-the-bad-blood-music-video/)
+- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
+- [scarlett johansson fringe](https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/)
 - [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
+- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
+- [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
+- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
 - [Get Winning Looks from Project Runways First Two E...](https://allwomenstalk.com/get-winning-looks-from-project-runways-first-two-episodes/)
 - [10 Reese Witherspoon Street Style Inspirations ...](https://allwomenstalk.com/10-reese-witherspoon-street-style-inspirations/)
 

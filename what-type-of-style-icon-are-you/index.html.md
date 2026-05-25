@@ -3,7 +3,7 @@ title: "What Type of Style Icon Are You?"
 description: "Feminine; Sporty; Bohemian; Eccentric; Conservative; More ..."
 url: "https://fashion.allwomenstalk.com/what-type-of-style-icon-are-you/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # What Type of Style Icon Are You?
@@ -74,16 +74,16 @@ You might find that your style can actually be described using more than one of 
 
 ## Related Posts
 
-- [signs he likes the idea of you](https://love.allwomenstalk.com/signs-you-only-like-the-idea-of-him/)
-- [is my boyfriend taking advantage of me](https://love.allwomenstalk.com/is-your-boyfriend-taking-advantage-of-you/)
-- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
-- [destined with you break up](https://love.allwomenstalk.com/are-you-destined-to-break-up/)
-- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
+- [vehicle youd buy if money were no object](https://money.allwomenstalk.com/what-would-you-buy-if-money-were-no-object/)
 - [worlds best jobs](https://money.allwomenstalk.com/are-these-the-best-jobs-in-the-world/)
 - [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
-- [bored of my job but it pays well](https://money.allwomenstalk.com/do-you-really-hate-your-job-or-are-you-just-bored/)
+- [signs he likes the idea of you](https://love.allwomenstalk.com/signs-you-only-like-the-idea-of-him/)
+- [destined with you break up](https://love.allwomenstalk.com/are-you-destined-to-break-up/)
 - [someone with good values](https://inspiration.allwomenstalk.com/what-values-make-you-a-good-person/)
-- [vehicle youd buy if money were no object](https://money.allwomenstalk.com/what-would-you-buy-if-money-were-no-object/)
+- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
+- [is my boyfriend taking advantage of me](https://love.allwomenstalk.com/is-your-boyfriend-taking-advantage-of-you/)
+- [bored of my job but it pays well](https://money.allwomenstalk.com/do-you-really-hate-your-job-or-are-you-just-bored/)
+- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
 - [Celebrity Fashion Face-off: Pick Your Winners ...](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
 - [Whats Your Avatar](https://allwomenstalk.com/whats-your-avatar/)
 

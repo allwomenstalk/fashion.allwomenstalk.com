@@ -3,7 +3,7 @@ title: "8 Designer Collaborations for Kids ..."
 description: "Diane Von Furstenberg for Gap; Karen Walker for Uniqlo; Stella McCartney for Gap; Philip Treacy for Thomson; Missoni for Bugaboo; More ..."
 url: "https://fashion.allwomenstalk.com/designer-collaborations-for-kids/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Designer Collaborations for Kids ...
@@ -47,15 +47,15 @@ These are just some of the more popular designer clothing collaborations for kid
 ## Related Posts
 
 - [this sporty](https://streetstyle.allwomenstalk.com/great-sporty-street-style-looks/)
-- [documentary fashion](https://movies.allwomenstalk.com/great-fashion-documentaries-to-watch/)
-- [stockholm fashion week](https://inspiration.allwomenstalk.com/fashion-weeks-around-the-world-and-what-to-expect/)
-- [where do celebrities sell their clothes](https://celebs.allwomenstalk.com/crazy-celebrities-who-make-fashion-sell-out/)
 - [fashion forward trends](https://fashion.allwomenstalk.com/stunning-fashion-forward-trends-from-classic-films/)
 - [english fashion styles for ladies](https://fashion.allwomenstalk.com/fabulous-british-fashion-icons-to-look-up-to/)
+- [where do celebrities sell their clothes](https://celebs.allwomenstalk.com/crazy-celebrities-who-make-fashion-sell-out/)
 - [sf street style](https://streetstyle.allwomenstalk.com/most-fabulous-street-style-icons/)
-- [spring street style risk taking over](https://streetstyle.allwomenstalk.com/gorgeous-spring-street-style-looks/)
-- [lady gagas dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
 - [best fashion and beauty websites](https://fashion.allwomenstalk.com/amazing-fashion-and-beauty-websites-you-have-to-check-out/)
+- [documentary fashion](https://movies.allwomenstalk.com/great-fashion-documentaries-to-watch/)
+- [spring street style risk taking over](https://streetstyle.allwomenstalk.com/gorgeous-spring-street-style-looks/)
+- [stockholm fashion week](https://inspiration.allwomenstalk.com/fashion-weeks-around-the-world-and-what-to-expect/)
+- [lady gagas dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [8 Amazingly Creative Family Gift Ideas ...](https://lifestyle.allwomenstalk.com/amazingly-creative-family-gift-ideas/)
 

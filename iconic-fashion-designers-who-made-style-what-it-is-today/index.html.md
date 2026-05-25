@@ -3,7 +3,7 @@ title: "7 Iconic Fashion Designers Who Made Style What It is Today ..."
 description: "Charles Frederick Worth; Coco Chanel; Mainbocher; Christian Dior; Vivienne Westwood; More ..."
 url: "https://fashion.allwomenstalk.com/iconic-fashion-designers-who-made-style-what-it-is-today/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Iconic Fashion Designers Who Made Style What It is Today ...
@@ -54,16 +54,16 @@ There are almost too many iconic fashion designers to list here. Donna Karen, Ve
 
 ## Related Posts
 
-- [7 Things Tommy Ton Taught Us about Street Style .....](https://streetstyle.allwomenstalk.com/things-tommy-ton-taught-us-about-street-style/)
-- [9 Spring Fashion Collections We Absolutely Love .....](https://fashion.allwomenstalk.com/spring-fashion-collections-we-absolutely-love/)
-- [paris riche stylo icon](https://celebs.allwomenstalk.com/fashion-icons-and-where-you-should-shop-to-look-like-them/)
-- [celebrities at fashion week](https://celebs.allwomenstalk.com/celebrities-at-fashion-week-who-looked-amazing/)
-- [cecilia cassini clothing line](https://fashion.allwomenstalk.com/fabulous-young-designers-who-rock/)
 - [riche le stylo eye hollywood icon](https://celebs.allwomenstalk.com/best-celebrity-designers-who-will-blow-your-mind/)
-- [7 Amazing Street Style Looks from LFW ...](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-lfw/)
+- [7 Best Celebrity Styles You Need to Steal ...](https://celebs.allwomenstalk.com/best-celebrity-styles-you-need-to-steal/)
+- [paris riche stylo icon](https://celebs.allwomenstalk.com/fashion-icons-and-where-you-should-shop-to-look-like-them/)
 - [9 Fashion Editors on Instagram Worth following ...](https://fashion.allwomenstalk.com/fashion-editors-on-instagram-worth-following/)
 - [green sweater matching pants](https://streetstyle.allwomenstalk.com/spring-street-style-looks-to-recreate-for/)
-- [7 Best Celebrity Styles You Need to Steal ...](https://celebs.allwomenstalk.com/best-celebrity-styles-you-need-to-steal/)
+- [cecilia cassini clothing line](https://fashion.allwomenstalk.com/fabulous-young-designers-who-rock/)
+- [7 Things Tommy Ton Taught Us about Street Style .....](https://streetstyle.allwomenstalk.com/things-tommy-ton-taught-us-about-street-style/)
+- [celebrities at fashion week](https://celebs.allwomenstalk.com/celebrities-at-fashion-week-who-looked-amazing/)
+- [9 Spring Fashion Collections We Absolutely Love .....](https://fashion.allwomenstalk.com/spring-fashion-collections-we-absolutely-love/)
+- [7 Amazing Street Style Looks from LFW ...](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-lfw/)
 - [10 Highly Influential and Most Famous Fashion Desi...](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 

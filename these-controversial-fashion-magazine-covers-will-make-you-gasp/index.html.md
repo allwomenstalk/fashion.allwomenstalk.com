@@ -3,7 +3,7 @@ title: "These Controversial Fashion Magazine Covers Will Make You Gasp!"
 description: "Vogue Hommes, Fall 2012; Purple, Spring 2010; Vogue, April 2014; Vogue Italia, September 2011; Vogue Hommes Japan, September 2011; More ..."
 url: "https://fashion.allwomenstalk.com/these-controversial-fashion-magazine-covers-will-make-you-gasp/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # These Controversial Fashion Magazine Covers Will Make You Gasp!
@@ -92,12 +92,12 @@ So, did any of these controversial fashion magazine covers irk you or did you th
 
 ## Related Posts
 
-- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
-- [kim kardashian classy](https://fashion.allwomenstalk.com/times-we-loved-kim-kardashian-wests-evolving-style/)
 - [taylor swift easy outfits](https://celebs.allwomenstalk.com/times-we-wanted-to-copy-taylor-swifts-outfits/)
 - [lily collins audrey hepburn photoshoot](https://fashion.allwomenstalk.com/times-you-wanted-to-steal-lily-collinss-style/)
-- [cate blanchett street style](https://celebs.allwomenstalk.com/all-hail-the-style-queen-lets-study-cate-blanchetts-lookbook/)
 - [coco chanel jewelry quotes](https://fashion.allwomenstalk.com/pieces-of-fashion-advice-from-your-favorite-designers/)
+- [kim kardashian classy](https://fashion.allwomenstalk.com/times-we-loved-kim-kardashian-wests-evolving-style/)
+- [cate blanchett street style](https://celebs.allwomenstalk.com/all-hail-the-style-queen-lets-study-cate-blanchetts-lookbook/)
+- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
 - [weird runway outfits](https://fashion.allwomenstalk.com/wait-till-you-see-these-bizarre-runway-pictures/)
 - [rachel talbott](https://fashion.allwomenstalk.com/vloggers-with-gorgeous-fashion-sense/)
 - [fashion magazine covers](https://fashion.allwomenstalk.com/ring-out-the-old-you-have-to-see-these-vintage-fashion-magazine-covers/)

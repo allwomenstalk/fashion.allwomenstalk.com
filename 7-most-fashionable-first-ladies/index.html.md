@@ -3,7 +3,7 @@ title: "7 Most Fashionable First Ladies ..."
 description: "Jackie Kennedy-Onassis; Michelle Obama; Martha Washington; Eleanor Roosevelt; Dolley Madison; More ..."
 url: "https://fashion.allwomenstalk.com/7-most-fashionable-first-ladies/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Most Fashionable First Ladies ...
@@ -44,12 +44,12 @@ Top Photo Credit: [The U.S. Army](https://www.flickr.com/photos/soldiersmediacen
 
 ## Related Posts
 
-- [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly/)
-- [trend setter fashion](https://fashion.allwomenstalk.com/victoria-beckham-trend-setter/)
 - [Mom Stakes Her Claim in the Fashion Industry ...](https://allwomenstalk.com/mom-stakes-her-claim-in-the-fashion-industry/)
-- [Silk Dresses: See by Chloe Vs River Island](https://allwomenstalk.com/silk-dresses-see-by-chloe-vs-river-island/)
 - [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly-kiss-me-stace/)
+- [Silk Dresses: See by Chloe Vs River Island](https://allwomenstalk.com/silk-dresses-see-by-chloe-vs-river-island/)
+- [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly/)
 - [fashion 2007](https://allwomenstalk.com/spring-fashion-it-list-they-say/)
+- [trend setter fashion](https://fashion.allwomenstalk.com/victoria-beckham-trend-setter/)
 - [Fall 2007 Fashion Week Countdown ...](https://allwomenstalk.com/fall-fashion-week-countdown/)
 - [7 Fashionable Holiday Frocks ...](https://fashion.allwomenstalk.com/fashionable-holiday-frocks/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)

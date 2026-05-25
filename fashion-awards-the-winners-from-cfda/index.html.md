@@ -3,7 +3,7 @@ title: "Fashion Awards: the Winners from CFDA 2015 ..."
 description: "Womenswear Designer of the Year – the Row; Menswear Designer of the Year – Tom Ford; Accessories Designer of the Year – Tabitha Simmons; Swarovski Award for Accessory Design – Mansur Gavriel; Swarovski Award for Menswear – Shayne Oliver for Hood by Air; More ..."
 url: "https://fashion.allwomenstalk.com/fashion-awards-the-winners-from-cfda/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Fashion Awards: the Winners from CFDA 2015 ...
@@ -62,16 +62,16 @@ Do you admire any of these designers and their creations?
 
 ## Related Posts
 
-- [The Best Celeb Instagram Photos from the 2016 Gram...](https://celebs.allwomenstalk.com/the-best-celeb-instagram-photos-from-the-grammys/)
-- [The Best Dressed Celebrities at the 2016 Grammys W...](https://celebs.allwomenstalk.com/the-best-dressed-celebrities-at-the-grammys-are/)
-- [And the Best Dressed Celebrities at the Golden Glo...](https://fashion.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-golden-globes-were/)
-- [The Most Gorgeous Red Carpet Gowns of 2015 ...](https://fashion.allwomenstalk.com/the-most-gorgeous-red-carpet-gowns-of/)
 - [These Celebrities Rocked the Met Gala Red Carpet](https://fashion.allwomenstalk.com/these-celebrities-rocked-the-met-gala-red-carpet/)
-- [10 Stunning Looks from 2016 Golden Globes We Still...](https://celebs.allwomenstalk.com/stunning-looks-from-golden-globes-we-still-can-not-get-over/)
 - [How Your Fav Stars Grammy Styles Have Changed over...](https://fashion.allwomenstalk.com/how-your-fav-stars-grammy-styles-have-changed-over-the-years/)
+- [10 Stunning Looks from 2016 Oscars to Copy This Sp...](https://celebs.allwomenstalk.com/stunning-looks-from-oscars-to-copy-this-spring/)
+- [The Best Celeb Instagram Photos from the 2016 Gram...](https://celebs.allwomenstalk.com/the-best-celeb-instagram-photos-from-the-grammys/)
+- [10 Stunning Looks from 2016 Golden Globes We Still...](https://celebs.allwomenstalk.com/stunning-looks-from-golden-globes-we-still-can-not-get-over/)
+- [And the Best Dressed Celebrities at the Golden Glo...](https://fashion.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-golden-globes-were/)
+- [The Best Dressed Celebrities at the 2016 Grammys W...](https://celebs.allwomenstalk.com/the-best-dressed-celebrities-at-the-grammys-are/)
+- [The Most Gorgeous Red Carpet Gowns of 2015 ...](https://fashion.allwomenstalk.com/the-most-gorgeous-red-carpet-gowns-of/)
 - [44 of the Best Dressed at Lollapalooza 2015 Accord...](https://fashion.allwomenstalk.com/of-the-best-dressed-at-lollapalooza-according-to-the-style-gurus/)
 - [And These Were the Winning Red Carpet Looks at the...](https://celebs.allwomenstalk.com/and-these-were-the-winning-red-carpet-looks-at-the-oscars/)
-- [10 Stunning Looks from 2016 Oscars to Copy This Sp...](https://celebs.allwomenstalk.com/stunning-looks-from-oscars-to-copy-this-spring/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
 

@@ -3,7 +3,7 @@ title: "How to Dress like a New York Fashion Icon ..."
 description: "Accessorise with the Right Statement Pieces; Pair a Sexy Skirt with a Casual Sweatshirt; Blend in with the Environment While Also Standing out; Keep at Least 1 Amazing off-the-Shoulder Shirt in Rotation; Dare to Cover Your Coordinated Set with a Contrast Print; More ..."
 url: "https://fashion.allwomenstalk.com/how-to-dress-like-a-new-york-fashion-icon/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # How to Dress like a New York Fashion Icon ...
@@ -16,7 +16,7 @@ According to [popsugar](https://www.popsugar.com.au/fashion/How-Dress-Like-New-Y
 
 $37.57 at [asos.com](https://www.asos.com/tatty-devine/tatty-devine-dental-bling-make-up-bag/prd/7388978?iid=7388978&clr=Multi&SearchQuery=clutch&pgesize=204&pge=0&totalstyles=278&gridsize=4&gridrow=46&gridcolumn=2)
 
-![red, pink, hairstyle, coin purse, moustache,](https://img.allw.mn/content/kq/uh/tpuogqdf58cf25ad18095072995594_513x655.jpg)
+![red, pink, hairstyle, coin purse, moustache,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/kq/uh/tpuogqdf58cf25ad18095072995594_513x655.jpg)
 
 A simple denim dress is just begging for a poppy clutch.
 
@@ -24,7 +24,7 @@ A simple denim dress is just begging for a poppy clutch.
 
 $8.99 at _forever21.com_
 
-![clothing, leather, sleeve, jacket, dress,](https://img.allw.mn/content/ca/kc/fxda635o58cf244d29b1e836977987_600x900.jpg)
+![clothing, leather, sleeve, jacket, dress,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ca/kc/fxda635o58cf244d29b1e836977987_600x900.jpg)
 
 Duh, what else would it go with?
 
@@ -32,7 +32,7 @@ Duh, what else would it go with?
 
 $19.90 at [forever21.com](https://www.forever21.com/Product/Product.aspx?br=F21&category=dress&productid=2000207145)
 
-![dress, little black dress, clothing, sleeve, cocktail dress,](https://img.allw.mn/content/p0/ij/sfoskyhi58cf244d1def1789155586_600x900.jpg)
+![dress, little black dress, clothing, sleeve, cocktail dress,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/p0/ij/sfoskyhi58cf244d1def1789155586_600x900.jpg)
 
 Nothing beats a classic black dress with a sexy side slit.
 
@@ -40,7 +40,7 @@ Nothing beats a classic black dress with a sexy side slit.
 
 $12.90 at _forever21.com_
 
-![hair, white, clothing, sleeve, hairstyle,](https://img.allw.mn/content/pl/gl/bj24gfwf58cf244d5bec4405336001_600x881.jpg)
+![hair, white, clothing, sleeve, hairstyle,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/pl/gl/bj24gfwf58cf244d5bec4405336001_600x881.jpg)
 
 And polish it off with platforms.
 
@@ -48,7 +48,7 @@ And polish it off with platforms.
 
 $85.69 at [asos.com](https://www.asos.com/free-people/free-people-smile-like-you-longline-cardigan-in-stripe/prd/7030404?iid=7030404&clr=Greycombo&SearchQuery=striped%20cardigan&pgesize=15&pge=0&totalstyles=15&gridsize=4&gridrow=4&gridcolumn=1)
 
-![clothing, sleeve, outerwear, jacket, neck,](https://img.allw.mn/content/se/qe/dsfddxf058cf25bde2eee287758297_513x655.jpg)
+![clothing, sleeve, outerwear, jacket, neck,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/se/qe/dsfddxf058cf25bde2eee287758297_513x655.jpg)
 
 It's time to bring all the prints you love into one stylish outfit.
 
@@ -56,7 +56,7 @@ It's time to bring all the prints you love into one stylish outfit.
 
 $37.58 at [asos.com](https://www.asos.com/asos/asos-hang-time-barely-there-heeled-sandals/prd/7480196?iid=7480196&clr=White&SearchQuery=white%20heels&pgesize=36&pge=0&totalstyles=77&gridsize=4&gridrow=3&gridcolumn=4)
 
-![footwear, shoe, leg, high heeled footwear, leather,](https://img.allw.mn/content/y3/sy/o8asuuqv58cf25cbd0dbe165459271_513x655.jpg)
+![footwear, shoe, leg, high heeled footwear, leather,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/y3/sy/o8asuuqv58cf25cbd0dbe165459271_513x655.jpg)
 
 And then add a fun, quirky bag.
 
@@ -64,7 +64,7 @@ And then add a fun, quirky bag.
 
 $14.90 at _forever21.com_
 
-![hair, clothing, sleeve, hairstyle, eyewear,](https://img.allw.mn/content/nl/li/blfxkap958cf244d96e66055625403_600x900.jpg)
+![hair, clothing, sleeve, hairstyle, eyewear,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/nl/li/blfxkap958cf244d96e66055625403_600x900.jpg)
 
 As we said before, it's all about blending into the background.
 
@@ -72,7 +72,7 @@ As we said before, it's all about blending into the background.
 
 $48.00 at _forever21.com_
 
-![human positions, clothing, leg, sitting, footwear,](https://img.allw.mn/content/zk/e0/hmukpxsu58cf244dbdab2917585383_600x900.jpg)
+![human positions, clothing, leg, sitting, footwear,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/zk/e0/hmukpxsu58cf244dbdab2917585383_600x900.jpg)
 
 This will give an outfit a much needed boost...literally.
 
@@ -80,7 +80,7 @@ This will give an outfit a much needed boost...literally.
 
 $22.90 at _forever21.com_
 
-![clothing, sleeve, active undergarment, photo shoot, leg,](https://img.allw.mn/content/mj/k5/oi7wg8ou58cf244dc1196973581299_600x900.jpg)
+![clothing, sleeve, active undergarment, photo shoot, leg,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/mj/k5/oi7wg8ou58cf244dc1196973581299_600x900.jpg)
 
 Only the really confident ladies should take on this trend.
 
@@ -88,7 +88,7 @@ Only the really confident ladies should take on this trend.
 
 $15.03 at [asos.com](https://www.asos.com/asos/asos-asymmetric-clutch-bag/prd/7214801?iid=7214801&clr=Red&SearchQuery=red%20bag&pgesize=86&pge=0&totalstyles=86&gridsize=4&gridrow=6&gridcolumn=4)
 
-![handbag, bag, fashion accessory, leather, coin purse,](https://img.allw.mn/content/h8/sq/ifvqp36d58cf25de9a0eb367156245_513x655.jpg)
+![handbag, bag, fashion accessory, leather, coin purse,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/h8/sq/ifvqp36d58cf25de9a0eb367156245_513x655.jpg)
 
 A bright red bag is just the right touch.
 
@@ -96,7 +96,7 @@ A bright red bag is just the right touch.
 
 $24.90 at _forever21.com_
 
-![footwear, shoe, pink, leather, leg,](https://img.allw.mn/content/fk/jp/z0f5g1uh58cf3292723fa856370298_600x900.jpg)
+![footwear, shoe, pink, leather, leg,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/fk/jp/z0f5g1uh58cf3292723fa856370298_600x900.jpg)
 
 Especially if you're paying homage to the Big Apple.
 
@@ -104,7 +104,7 @@ Especially if you're paying homage to the Big Apple.
 
 $39.09 at [asos.com](https://www.asos.com/adolescent-clothing/adolescent-clothing-long-sleeve-band-t-shirt-with-black-sabbath-lineup-print/prd/7795713?iid=7795713&clr=White&SearchQuery=printed%20tee&pgesize=190&pge=0&totalstyles=190&gridsize)
 
-![white, clothing, sleeve, t shirt, pattern,](https://img.allw.mn/content/d1/rl/vf8t10nr58cf32a89ce6c376930317_513x655.jpg)
+![white, clothing, sleeve, t shirt, pattern,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/d1/rl/vf8t10nr58cf32a89ce6c376930317_513x655.jpg)
 
 It's what vintage tees were made for.
 
@@ -112,7 +112,7 @@ It's what vintage tees were made for.
 
 $57.13 at [asos.com](https://www.asos.com/abercrombie-fitch/abercrombie-fitch-stripe-cardigan/prd/7207239?iid=7207239&clr=Wine&SearchQuery=striped%20cardigan&pgesize=15&pge=0&totalstyles=15&gridsize=4&gridrow=1&gridcolumn=3)
 
-![clothing, sleeve, outerwear, sweater, pattern,](https://img.allw.mn/content/h9/gs/oifj7w0m58cf33de8983e591469471_513x655.jpg)
+![clothing, sleeve, outerwear, sweater, pattern,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/h9/gs/oifj7w0m58cf33de8983e591469471_513x655.jpg)
 
 Some prints, combined together, are a match made in heaven.
 
@@ -120,7 +120,7 @@ Some prints, combined together, are a match made in heaven.
 
 $5.90 at [forever21.com](https://www.forever21.com/Product/Product.aspx?br=F21&category=ACC&productid=1000230470)
 
-![eyewear, sunglasses, glasses, hair, vision care,](https://img.allw.mn/content/pt/pe/ry9rp96958cf3292a71c0361276714_600x900.jpg)
+![eyewear, sunglasses, glasses, hair, vision care,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/pt/pe/ry9rp96958cf3292a71c0361276714_600x900.jpg)
 
 For those days when you just can't face the world.
 
@@ -128,7 +128,7 @@ For those days when you just can't face the world.
 
 $23.99 at _forever21.com_
 
-![clothing, photography, outerwear, sleeve, fashion,](https://img.allw.mn/content/iw/o3/pgfhi4sz58cf3292e1b40714898204_600x900.jpg)
+![clothing, photography, outerwear, sleeve, fashion,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/iw/o3/pgfhi4sz58cf3292e1b40714898204_600x900.jpg)
 
 Fun stripes or cut-outs add freshness to this look.
 
@@ -136,7 +136,7 @@ Fun stripes or cut-outs add freshness to this look.
 
 $48.00 at _forever21.com_
 
-![clothing, blue, sleeve, overall, denim,](https://img.allw.mn/content/px/v7/q5xq8sak58cf329306937801406826_600x900.jpg)
+![clothing, blue, sleeve, overall, denim,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/px/v7/q5xq8sak58cf329306937801406826_600x900.jpg)
 
 Really, what do you have to lose?
 
@@ -144,7 +144,7 @@ Really, what do you have to lose?
 
 $19.90 at _forever21.com_
 
-![clothing, outerwear, sleeve, spring, season,](https://img.allw.mn/content/q5/p1/die7761f58cf329338287635052477_600x900.jpg)
+![clothing, outerwear, sleeve, spring, season,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/q5/p1/die7761f58cf329338287635052477_600x900.jpg)
 
 The perfect oversize piece is paired with simple casual wear.
 
@@ -152,7 +152,7 @@ The perfect oversize piece is paired with simple casual wear.
 
 $32.99 at _forever21.com_
 
-![clothing, footwear, human positions, leg, high heeled footwear,](https://img.allw.mn/content/js/s2/ylv0980k58cf3293f2a35326206033_600x900.jpg)
+![clothing, footwear, human positions, leg, high heeled footwear,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/js/s2/ylv0980k58cf3293f2a35326206033_600x900.jpg)
 
 It's time to make a statement with your footwear.
 
@@ -160,7 +160,7 @@ It's time to make a statement with your footwear.
 
 $52.62 at [asos.com](https://www.asos.com/asos-petite/asos-petite-co-ord-cigarette-trouser-in-mono-print/prd/7368041?iid=7368041&clr=Mono&SearchQuery=&cid=19632&pgesize=36&pge=0&totalstyles=52&gridsize=4&gridrow=8&gridcolumn=1)
 
-![clothing, sleeve, trousers, pattern, leggings,](https://img.allw.mn/content/z2/gk/qpemosci58cf32b95c59c246143170_513x655.jpg)
+![clothing, sleeve, trousers, pattern, leggings,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/z2/gk/qpemosci58cf32b95c59c246143170_513x655.jpg)
 
 Coords are just so stylish and your look will be on point.
 
@@ -168,7 +168,7 @@ Coords are just so stylish and your look will be on point.
 
 $27.90 at [forever21.com](https://www.forever21.com/Product/Product.aspx?BR=f21&Category=shoes&ProductID=2000207647&VariantID=)
 
-![footwear, shoe, sneakers, white, walking shoe,](https://img.allw.mn/content/e7/uy/bqowgi1p58cf3293e65e5846465695_600x900.jpg)
+![footwear, shoe, sneakers, white, walking shoe,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/e7/uy/bqowgi1p58cf3293e65e5846465695_600x900.jpg)
 
 Mix up the styles and pair different pieces together.
 
@@ -176,7 +176,7 @@ Mix up the styles and pair different pieces together.
 
 $120.26 at [asos.com](https://www.asos.com/dune/dune-studded-detail-open-court-shoe/prd/7409063?iid=7409063&clr=Nude&SearchQuery=stud%20heels&pgesize=30&pge=0&totalstyles=30&gridsize=4&gridrow=4&gridcolumn=1)
 
-![footwear, shoe, leg, high heeled footwear, leather,](https://img.allw.mn/content/f8/ds/u20zil9o58cf3c324449f819321489_513x655.jpg)
+![footwear, shoe, leg, high heeled footwear, leather,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/f8/ds/u20zil9o58cf3c324449f819321489_513x655.jpg)
 
 You can't go wrong with an elegant pair of designer heels.
 
@@ -184,7 +184,7 @@ You can't go wrong with an elegant pair of designer heels.
 
 $42.09 at [asos.com](https://www.asos.com/asos-mix-match-tailored-suit-in-black/grp/14782?iid=7718505&sgid=14782&clr=Black&SearchQuery=suit&pgesize=32&pge=0&totalstyles=32&gridsize=4&gridrow=2&gridcolumn=1)
 
-![,](https://img.allw.mn/content/ct/w6/d68p6rf658cf3c228ca0c867085021_513x655.jpg)
+![,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ct/w6/d68p6rf658cf3c228ca0c867085021_513x655.jpg)
 
 You'll feel totally empowered, we promise.
 
@@ -192,7 +192,7 @@ You'll feel totally empowered, we promise.
 
 $6.93 at _forever21.com_
 
-![white, clothing, sleeve, photo shoot, outerwear,](https://img.allw.mn/content/ud/ks/xk0rmd3v58cf41ccd37d3526788631_600x900.jpg)
+![white, clothing, sleeve, photo shoot, outerwear,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ud/ks/xk0rmd3v58cf41ccd37d3526788631_600x900.jpg)
 
 It can all come together looking totally breezy.
 
@@ -200,7 +200,7 @@ It can all come together looking totally breezy.
 
 $39.09 at [asos.com](https://www.asos.com/vero-moda-tall/vero-moda-tall-denim-jacket/prd/7662321?iid=7662321&clr=Black&SearchQuery=jacket&pgesize=36&pge=0&totalstyles=382&gridsize=4&gridrow=2&gridcolumn=3)
 
-![clothing, jacket, leather, sleeve, denim,](https://img.allw.mn/content/e3/p8/j7v87dme58cf3c16ecead819078947_513x655.jpg)
+![clothing, jacket, leather, sleeve, denim,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/e3/p8/j7v87dme58cf3c16ecead819078947_513x655.jpg)
 
 This is also a great way to show off your outfit underneath.
 
@@ -208,7 +208,7 @@ This is also a great way to show off your outfit underneath.
 
 $29.90 at _forever21.com_
 
-![jeans, clothing, denim, leg, footwear,](https://img.allw.mn/content/hm/fi/qdysebj358cf41cc9d7bc878947985_600x900.jpg)
+![jeans, clothing, denim, leg, footwear,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/hm/fi/qdysebj358cf41cc9d7bc878947985_600x900.jpg)
 
 Denim...and block heels.
 
@@ -216,7 +216,7 @@ Denim...and block heels.
 
 $33.07 at [asos.com](https://www.asos.com/asos/asos-metallic-bag-with-changeable-straps/prd/7546382?iid=7546382&clr=Multi&SearchQuery=cross%20body%20bag&pgesize=204&pge=0&totalstyles=269&gridsize=4&gridrow=34&gridcolumn=4)
 
-![clothing, sleeve, outerwear, coat, spring,](https://img.allw.mn/content/zs/mi/ivkqwysk58cf3d78465e9212822870_513x655.jpg)
+![clothing, sleeve, outerwear, coat, spring,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/zs/mi/ivkqwysk58cf3d78465e9212822870_513x655.jpg)
 
 Remember: it doesn't have to be all about the bag itself.
 
@@ -224,7 +224,7 @@ Remember: it doesn't have to be all about the bag itself.
 
 $57.13 at [asos.com](https://www.asos.com/asos/asos-knit-dress-with-zip-detail/prd/7303001?iid=7303001&clr=Darkred&SearchQuery=jumper%20dress&pgesize=23&pge=0&totalstyles=23&gridsize=4&gridrow=2&gridcolumn=2)
 
-![clothing, sleeve, pink, maroon, outerwear,](https://img.allw.mn/content/h8/cd/zfsqn55058cf3bf3bb053999574726_513x655.jpg)
+![clothing, sleeve, pink, maroon, outerwear,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/h8/cd/zfsqn55058cf3bf3bb053999574726_513x655.jpg)
 
 It pairs flawlessly with over-the-knee boots.
 
@@ -232,7 +232,7 @@ It pairs flawlessly with over-the-knee boots.
 
 $195.43 at [asos.com](https://www.asos.com/french-connection/french-connection-summer-suit-jacket/prd/7640803?iid=7640803&clr=Black&SearchQuery=suit%20jacket&pgesize=7&pge=0&totalstyles=7&gridsize=4&gridrow=1&gridcolumn=3)
 
-![clothing, sleeve, outerwear, formal wear, tuxedo,](https://img.allw.mn/content/z4/qb/wcztbqsg58cf3c04e696d529018472_500x540.jpg)
+![clothing, sleeve, outerwear, formal wear, tuxedo,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/z4/qb/wcztbqsg58cf3c04e696d529018472_500x540.jpg)
 
 All black everything...can't go wrong.
 
@@ -240,7 +240,7 @@ All black everything...can't go wrong.
 
 $38.00 at _forever21.com_
 
-![clothing, black, day dress, dress, sleeve,](https://img.allw.mn/content/d8/sc/iumrcaxb58cf484d737b6099042199_600x900.jpg)
+![clothing, black, day dress, dress, sleeve,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/d8/sc/iumrcaxb58cf484d737b6099042199_600x900.jpg)
 
 If Rumi can pull it off, so can we.
 
@@ -248,7 +248,7 @@ If Rumi can pull it off, so can we.
 
 $60.00 at [nastygal.com](https://www.nastygal.com/the-spider-and-the-fly-striped-dress/AGG99512.html?color=106)
 
-![clothing, day dress, dress, sleeve, pattern,](https://img.allw.mn/content/pv/m0/dvxsr8ml58cf46e7c28b5750049879_600x900.jpg)
+![clothing, day dress, dress, sleeve, pattern,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/pv/m0/dvxsr8ml58cf46e7c28b5750049879_600x900.jpg)
 
 It's time to add a touch of playfulness to your outfit.
 
@@ -256,7 +256,7 @@ It's time to add a touch of playfulness to your outfit.
 
 $10.00 at _forever21.com_
 
-![clothing, jacket, outerwear, blazer, overcoat,](https://img.allw.mn/content/c8/c3/jez22uxl58cf484d170fe236596315_600x881.jpg)
+![clothing, jacket, outerwear, blazer, overcoat,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/c8/c3/jez22uxl58cf484d170fe236596315_600x881.jpg)
 
 Don't worry, it can totally be done.
 
@@ -264,7 +264,7 @@ Don't worry, it can totally be done.
 
 $87.19 at [asos.com](https://www.asos.com/reclaimed-vintage/reclaimed-vintage-backpack/prd/7747698?iid=7747698&clr=Neutral&SearchQuery=backpack&pgesize=204&pge=0&totalstyles=323&gridsize=4&gridrow=13&gridcolumn=2)
 
-![bag, brown, handbag, backpack, leather,](https://img.allw.mn/content/q2/oc/tlk87hgb58cf46fae2e6b360199526_513x655.jpg)
+![bag, brown, handbag, backpack, leather,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/q2/oc/tlk87hgb58cf46fae2e6b360199526_513x655.jpg)
 
 You won't regret it.
 
@@ -272,7 +272,7 @@ You won't regret it.
 
 $40.00 at [nastygal.com](https://www.nastygal.com/macy-satin-blazer/AGG99799.html?color=105)
 
-![clothing, black, outerwear, sleeve, jacket,](https://img.allw.mn/content/it/ci/jz7ejovw58cf470c34111367423916_600x900.jpg)
+![clothing, black, outerwear, sleeve, jacket,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/it/ci/jz7ejovw58cf470c34111367423916_600x900.jpg)
 
 This will make your outfit appear casual, carefree and relaxed.
 
@@ -280,7 +280,7 @@ This will make your outfit appear casual, carefree and relaxed.
 
 $7.90 at _forever21.com_
 
-![jewellery, earrings, fashion accessory, diamond, body jewelry,](https://img.allw.mn/content/y5/at/nksz12y258cf484d0d7e8316792614_600x900.jpg)
+![jewellery, earrings, fashion accessory, diamond, body jewelry,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/y5/at/nksz12y258cf484d0d7e8316792614_600x900.jpg)
 
 Statement jewellery are all the rage.
 
@@ -288,7 +288,7 @@ Statement jewellery are all the rage.
 
 $58.00 at _forever21.com_
 
-![clothing, sleeve, footwear, leg, spring,](https://img.allw.mn/content/tu/zd/lek4bggt58cf484cd2864070730214_600x900.jpg)
+![clothing, sleeve, footwear, leg, spring,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/tu/zd/lek4bggt58cf484cd2864070730214_600x900.jpg)
 
 Again, pair your trainers with any outfit to tone it down.
 
@@ -296,7 +296,7 @@ Again, pair your trainers with any outfit to tone it down.
 
 $28.00 at _forever21.com_
 
-![clothing, sleeve, hairstyle, outerwear, photo shoot,](https://img.allw.mn/content/u8/s1/flm3ttjw58cf484d866d5567666200_600x900.jpg)
+![clothing, sleeve, hairstyle, outerwear, photo shoot,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/u8/s1/flm3ttjw58cf484d866d5567666200_600x900.jpg)
 
 And be remembered for all the right reasons.
 
@@ -304,22 +304,22 @@ And be remembered for all the right reasons.
 
 $26.99 at _forever21.com_
 
-![clothing, hood, overcoat, coat, outerwear,](https://img.allw.mn/content/ka/p2/hovdpu9a58cf484d9ca46434546028_600x900.jpg)
+![clothing, hood, overcoat, coat, outerwear,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ka/p2/hovdpu9a58cf484d9ca46434546028_600x900.jpg)
 
 This is both stylish and comfortable.
 
 ## Related Posts
 
-- [fashion monitor](https://fashion.allwomenstalk.com/the-hottest-fashion-inspos-to-help-you-rock-white-sneakers-and-a-dress/)
-- [break style](https://fashion.allwomenstalk.com/style-rules-you-should-break/)
+- [diy crop top ideas](https://fashion.allwomenstalk.com/crop-top-style-tips-to-rock-the-hottest-fashion-trend/)
 - [hip and trendy clothing](https://fashion.allwomenstalk.com/hip-and-cool-tips-to-wearing-all-black-and-still-staying-modern/)
-- [formal office look](https://fashion.allwomenstalk.com/fashion-tips-for-formal-office-look/)
 - [how to dress for a black tie event](https://fashion.allwomenstalk.com/how-to-style-a-little-black-dress-for-all-occasions/)
 - [coco chanel style tips](https://fashion.allwomenstalk.com/awesome-style-tips-we-can-all-take-as-a-lesson-from-coco-chanel/)
 - [what color dress goes with silver heels](https://shoes.allwomenstalk.com/the-outfit-essential-of-the-year-silver-boots-check-out-how-to-rock-the-look/)
-- [diy crop top ideas](https://fashion.allwomenstalk.com/crop-top-style-tips-to-rock-the-hottest-fashion-trend/)
+- [formal office look](https://fashion.allwomenstalk.com/fashion-tips-for-formal-office-look/)
 - [how to wear oversized sweaters without looking fat](https://fashion.allwomenstalk.com/tips-on-how-to-style-oversized-clothes-without-looking-awkward/)
 - [busty petite 2017](https://fashion.allwomenstalk.com/brilliant-style-tips-for-petite-women-in/)
+- [break style](https://fashion.allwomenstalk.com/style-rules-you-should-break/)
+- [fashion monitor](https://fashion.allwomenstalk.com/the-hottest-fashion-inspos-to-help-you-rock-white-sneakers-and-a-dress/)
 - [7 Ways to Incorporate 1920s Fashion into Your Look...](https://allwomenstalk.com/7-ways-to-incorporate-1920s-fashion-into-your-look/)
 - [8 Beauty Tips from New York Fashion Week ...](https://beauty.allwomenstalk.com/beauty-tips-from-new-york-fashion-week/)
 

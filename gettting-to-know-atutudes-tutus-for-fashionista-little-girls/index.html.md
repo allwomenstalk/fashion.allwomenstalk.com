@@ -3,7 +3,7 @@ title: "Gettting to Know Atutudes: Tutus for Fashionista Little Girls ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://fashion.allwomenstalk.com/gettting-to-know-atutudes-tutus-for-fashionista-little-girls/"
 category: "fashion"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Gettting to Know Atutudes: Tutus for Fashionista Little Girls ...
@@ -14,7 +14,7 @@ _ Photo Credit: [Ashley Concilio-Photography](https://www.facebook.com/unsupport
 
 [Atutudes](http://www.etsy.com?ref=allwomenstalk.com)was born when my best friend, Jennifer, and I were planning her daughter Elan's first birthday party. We were looking for just the right outfit for her big day. Not finding what we were looking for, we decided to do some research and see if we could learn how to make our own tutus. Once we learned how to make them, we were hooked! It was so much fun to create beautiful things. We thought, Why not try to make a career of it? There was very little start-up cost. We purchased the instructions, bought some tulle, elastic, and a few embellishments, and started to create. We used our own money out of pocket. We rented a booth at a local flea market for $40 for a weekend to see if we had something people would be interested in. We were received very well and knew we were onto something special. It was tough to give up weekends to sell at the flea market and to find room to store our items. [Etsy.com](http://www.etsy.com?ref=allwomenstalk.com)has been such a blessing!
 
-![](https://img.allw.mn/content/fashion/2011/11/Poodle01_445x664.jpg)
+![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/fashion/2011/11/Poodle01_445x664.jpg)
 
 Photo Credit: Kristie Mason Photography_
 
@@ -30,16 +30,16 @@ Stalkers next time you are having a birthday party for your little girl, dressin
 
 ## Related Posts
 
-- [celeb style guide](https://fashion.allwomenstalk.com/celeb-looks-to-copy-style-for-cheap-statement-pieces-and-more/)
-- [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
-- [dress like a celebrity day](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 - [best magazine for fashion](https://fashion.allwomenstalk.com/top-fashion-magazines-you-ought-to-read/)
-- [best looking models of all time](https://fashion.allwomenstalk.com/incredibly-gorgeous-top-fashion-models-of-all-time/)
-- [select the correct answer. identify the place show...](https://fashion.allwomenstalk.com/screen-sirens-to-take-wardrobe-inspiration-from/)
-- [fashionista job](https://fashion.allwomenstalk.com/coolest-careers-in-fashion/)
-- [most influential designers](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
+- [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
 - [5 Top Picks from Style Pilot for the Alternative G...](https://fashion.allwomenstalk.com/top-picks-from-style-pilot-for-the-alternative-guy/)
+- [dress like a celebrity day](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
+- [select the correct answer. identify the place show...](https://fashion.allwomenstalk.com/screen-sirens-to-take-wardrobe-inspiration-from/)
+- [most influential designers](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
 - [glasses celebrities](https://fashion.allwomenstalk.com/outrageously-stylish-oversized-sunglasses-celebrities-would-wear/)
+- [best looking models of all time](https://fashion.allwomenstalk.com/incredibly-gorgeous-top-fashion-models-of-all-time/)
+- [fashionista job](https://fashion.allwomenstalk.com/coolest-careers-in-fashion/)
+- [celeb style guide](https://fashion.allwomenstalk.com/celeb-looks-to-copy-style-for-cheap-statement-pieces-and-more/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [Fashions Tall Tale ...](https://allwomenstalk.com/fashions-tall-tale/)
 
