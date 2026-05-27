@@ -3,7 +3,7 @@ title: "11 Fabulous Outfits Worn by Kerry Washington ..."
 description: "2013 Film Independent Spirit Awards; 2013 MTV Movie Awards; 2013 Django Unchained UK Premiere; 2013 Late Show with David Letterman Appearance; TV Series Scandal; More ..."
 url: "https://fashion.allwomenstalk.com/fabulous-outfits-worn-by-kerry-washington/"
 category: "fashion"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 11 Fabulous Outfits Worn by Kerry Washington ...
@@ -82,14 +82,14 @@ Each of the looks discussed above deserve honorable mention for being pulled off
 
 - [preppy actresses](https://fashion.allwomenstalk.com/most-fabulous-fashion-icons-for-prepsters/)
 - [stylish black and white outfits](https://streetstyle.allwomenstalk.com/chic-black-and-white-street-style-looks/)
+- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
+- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
+- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
+- [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
+- [marion cotillard fashion](https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/)
+- [lauren conrad outfit](https://fashion.allwomenstalk.com/of-lauren-conrads-best-looks-that-we-love/)
 - [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
 - [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
-- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
-- [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
-- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
-- [marion cotillard fashion](https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/)
-- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
-- [lauren conrad outfit](https://fashion.allwomenstalk.com/of-lauren-conrads-best-looks-that-we-love/)
 - [8 Fabulous Classic Looks Kate Middleton Would Wear...](https://celebs.allwomenstalk.com/fabulous-classic-looks-kate-middleton-would-wear-to-a-holiday-party/)
 - [10 Best Dressed Celebrities of 2011 ...](https://fashion.allwomenstalk.com/best-dressed-celebrities-of/)
 

@@ -1,20 +1,28 @@
 ---
-title: "36 Party Dresses to Sparkle in at Christmas ..."
+title: "36 Stunning Party Dresses to Sparkle in This Holiday Season"
 description: "Short Red Dress; Dazzling Gold Sequin Party Dress; Charmed Sequined Party Dress; Free People Dove Party Dress; Leshery Fashion Women Cocktail Mini Dress; More ..."
 url: "https://fashion.allwomenstalk.com/party-dresses-to-sparkle-in-at-christmas/"
 category: "fashion"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
-# 36 Party Dresses to Sparkle in at Christmas ...
+# 36 Stunning Party Dresses to Sparkle in This Holiday Season
 
-One of the most fun things about the holiday season is wearing party dresses. Whether you reach for your trusty favorite from your closet or have the thrill of shopping for a new one, just popping on a party dress is an anticipation of excitement. If you're going to treat yourself to a new holiday outfit, maybe one of these party dresses will make you feel like a million bucks.
+One of the most fun things about the holiday season is wearing [party dresses](https://fashion.allwomenstalk.com/gorgeous-holiday-dresses/). Whether you reach for your trusty favorite from your closet or have the thrill of shopping for a new one, just popping on a party dress is an anticipation of excitement. If you're going to treat yourself to a new holiday outfit, maybe one of these party dresses will make you feel like a million bucks.
+
+When selecting your perfect dress, consider these key elements:
+
+- **Comfort:** Ensure you can move and dance freely.
+
+- **Versatility:** Can you wear it to multiple events?
+
+- **Style:** Does it reflect your personal fashion sense?
 
 ## 1. Short Red Dress
 
 ![Short Red Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ev/s5/nbgkz1hz_354x354.jpg)
 
-[HappyBegins on Etsy](http://www.etsy.com?ref=allwomenstalk.com)
+[HappyBegins on Etsy](https://www.etsy.com/)
 **Price:** $59.80
 Red is such a perfect holiday color for party dresses. Lacy and bold, this short lacy number is sure to turn heads.
 
@@ -34,7 +42,7 @@ You'll outshine the holiday decorations in this gold number.
 
 ![Free People Dove Party Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/cy/jo/hezjijti_354x354.jpg)
 
-[SHOPBOP](http://www.shopbop.com?ref=allwomenstalk.com)
+[SHOPBOP](https://www.shopbop.com/)
 **Price:** $253.00
 Show a little bit of flesh in a tasteful way.
 
@@ -42,7 +50,7 @@ Show a little bit of flesh in a tasteful way.
 
 ![Leshery Fashion Women Cocktail Mini Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/s9/dq/kxycup55_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $21.98
 If you've kept in trim for the holiday season, show off your figure in a body hugging sheath.
 
@@ -50,7 +58,7 @@ If you've kept in trim for the holiday season, show off your figure in a body hu
 
 ![APTRO Women's Sweetheart Tulle Short Party Dresses](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/lp/jv/hgmv1bti_354x336.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $159.00
 Be a show stopper in black.
 
@@ -64,7 +72,7 @@ Overindulge a little and don't worry, thanks to the spandex in this figure flatt
 
 ![Flare a-Line Lace Embroidered Party Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/a2/x7/bufqde1b_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $30.99
 You can't go wrong with black and lace.
 
@@ -80,7 +88,7 @@ If you want to splurge a little, this Christmas green is a great choice.
 
 ![FINEJO Women's Cute Lace Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/zv/zv/p5qk7q31_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $14.69
 An LBD with a pretty shape.
 
@@ -88,7 +96,7 @@ An LBD with a pretty shape.
 
 ![Women's Lace Open Back Long Sleeve Backless Mini Skater Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/qu/x4/gj0sxv0u_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $21.07
 Apply some shimmer to your back and décolletage to really show off in this dress.
 
@@ -96,7 +104,7 @@ Apply some shimmer to your back and décolletage to really show off in this dres
 
 ![Wine Red Beaded Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/vl/l7/wqnyfjro_488x469.jpg)
 
-[cocohouse on Etsy](http://www.etsy.com?ref=allwomenstalk.com)
+[cocohouse on Etsy](https://www.etsy.com/)
 **Price:** $73.00
 Red + sequins = perfect Christmas party dress.
 
@@ -110,7 +118,7 @@ A party dress you can wear for clubbing year round.
 
 ![Aokdis Long Sleeve Long Maxi Evening Party Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/tf/h5/l2u2961x_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $16.99
 Long sleeves and long length yet still sexy.
 
@@ -118,7 +126,7 @@ Long sleeves and long length yet still sexy.
 
 ![Short Black Tulle Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/gy/om/wvy68xdw_570x428.jpg)
 
-[PrincesssBride on Etsy](http://www.etsy.com?ref=allwomenstalk.com)
+[PrincesssBride on Etsy](https://www.etsy.com/)
 **Price:** $169.00
 Loving all the rhinestones.
 
@@ -126,7 +134,7 @@ Loving all the rhinestones.
 
 ![Dresstells Short Tulle Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/if/dc/tvkqwde7_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $119.99
 Exquisite beading lifts this party frock to above average.
 
@@ -137,6 +145,12 @@ Exquisite beading lifts this party frock to above average.
 [ebay.co.uk](https://www.ebay.co.uk/itm/271596621958?nav=VI&mkcid=1&mkrid=710-53481-19255-0&campid=5337014444&toolid=10001&customid=l5v1wgpt7z0025vh01afm)
 **Price:** £29.99
 Loads of silver sequins and a thigh high slit? Be an A-lister at your holiday parties.
+
+| Dress Style | Best Occasion | Vibe |
+|---|---|---|
+| Sequin Mini | New Year's Eve | Glamorous |
+| Velvet Midi | Office Party | Elegant |
+| Lace Shift | Family Dinner | Classic |
 
 ## 18. Moonlit Gold Sequin Party Dress
 
@@ -156,7 +170,7 @@ With all the dark colors most people will wear, stand out if you dare in a winte
 
 ![Fengbay Women's Long Sleeve Spoon Neck Lace Party Mini Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/u6/h1/at6y3dj7_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $20.08
 Pretty and very feminine with all over lace.
 
@@ -182,7 +196,7 @@ Gorgeous elegant sequined dress that is perfect for any occasion.
 
 ![Black Floral Lace Open Back with Cross Straps Party Skater Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/cj/lb/zl4nga12_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $13.99
 Lots of detail in a little dress.
 
@@ -190,7 +204,7 @@ Lots of detail in a little dress.
 
 ![Women's Vintage Crochet Lace Backless Open Back Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/g2/lv/ql2xqn89_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $19.54
 Wouldn't you feel fab in this little number?
 
@@ -198,7 +212,7 @@ Wouldn't you feel fab in this little number?
 
 ![Leshery Sexy Long Maxi Lace Gown](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/mm/j4/wvszhgro_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $21.97
 I think I'd quite like to opt for a maxi party dress.
 
@@ -206,7 +220,7 @@ I think I'd quite like to opt for a maxi party dress.
 
 ![Waterfall Sequined Illusion Party Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/cb/e7/oin4ktt6_354x354.jpg)
 
-[rue21](http://www.rue21.com?ref=allwomenstalk.com)
+[rue21](https://www.rue21.com/)
 **Price:** $39.99
 Sparkle like a Christmas fairy.
 
@@ -220,7 +234,7 @@ Do you like the sculptured look to this dress?
 
 ![Backless Sheer Mesh Skater Mini Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/qa/br/uqt4muqw_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $14.99
 Mesh is a great way of feeling sexy without feeling you're showing too much skin.
 
@@ -228,7 +242,7 @@ Mesh is a great way of feeling sexy without feeling you're showing too much skin
 
 ![Sleeveless Cut out Ruched Cross Strap Mini Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/yj/rx/flg1al9u_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $34.01
 But if you've got the confidence to bare it, dare it!
 
@@ -236,7 +250,7 @@ But if you've got the confidence to bare it, dare it!
 
 ![V Shape Backless Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/uf/qw/ttj1xsss_570x428.jpg)
 
-[LovelyMelodyClothing Shop](http://www.etsy.com?ref=allwomenstalk.com)
+[LovelyMelodyClothing Shop](https://www.etsy.com/)
 **Price:** $46.30
 The devil is in the detail and in this one it's all in the back.
 
@@ -244,7 +258,7 @@ The devil is in the detail and in this one it's all in the back.
 
 ![Gold Sequin Floral Party Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/mq/pz/awwokpiv_354x354.jpg)
 
-[Windsor](http://www.windsorstore.com?ref=allwomenstalk.com)
+[Windsor](https://www.windsorstore.com/)
 **Price:** $49.90
 Even florals have a place in the party dress world.
 
@@ -252,7 +266,7 @@ Even florals have a place in the party dress world.
 
 ![Natural Popstar Party Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/jn/mc/j6c3fn9d_354x354.jpg)
 
-[Windsor](http://www.windsorstore.com?ref=allwomenstalk.com)
+[Windsor](https://www.windsorstore.com/)
 **Price:** $369.90
 Rihanna? Beyoncé? Channel your inner diva.
 
@@ -260,7 +274,7 @@ Rihanna? Beyoncé? Channel your inner diva.
 
 ![Chevron Sequined Illusion Party Dress](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/gq/dv/jnxknmng_354x354.jpg)
 
-[rue21](http://www.rue21.com?ref=allwomenstalk.com)
+[rue21](https://www.rue21.com/)
 **Price:** $39.99
 If you're not into a bold bright red, go glamorous with sequins.
 
@@ -268,7 +282,7 @@ If you're not into a bold bright red, go glamorous with sequins.
 
 ![Fitted Sequins Mini](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/mz/sz/pv8bdw8w_354x354.jpg)
 
-[Amazon](http://www.amazon.com?ref=allwomenstalk.com)
+[Amazon](https://www.amazon.com/)
 **Price:** $22.99
 A cocktail dress with a hint of attitude.
 
@@ -278,20 +292,20 @@ _ Shop Priceless_
 **Price:** $28.97
 Maybe you like to cover up? Go slim and elegant in long sleeves.
 
-Do you love to dress up for parties? I love a bit of bling at Christmastime. If you can't wear spangles, glitter and sequins at Christmas, when can you?
+Do you love to dress up for parties? I love a bit of bling at Christmastime. If you can't wear spangles, glitter and sequins at Christmas, when can you? Check out our guide on [how to accessorize your holiday look](https://fashion.allwomenstalk.com/how-to-accessorize-a-sequin-dress/) for more inspiration.
 
 ## Related Posts
 
-- [red dress modcloth](https://fashion.allwomenstalk.com/red-dress-inspiration-for-new-year-party/)
-- [fabulous bridal](https://wedding.allwomenstalk.com/fabulous-wedding-veils-to-go-with-your-gown/)
 - [city night outfits](https://fashion.allwomenstalk.com/fabulous-date-night-outfit-ideas/)
-- [masquerade party outfit male](https://lifestyle.allwomenstalk.com/masquerade-masks-for-men-and-women-elegant-pieces-for-every-special-occasion/)
-- [dresses for winter formal high school](https://teen.allwomenstalk.com/stunning-winter-formal-dresses/)
+- [red dress modcloth](https://fashion.allwomenstalk.com/red-dress-inspiration-for-new-year-party/)
 - [white and red ball gown](https://fashion.allwomenstalk.com/of-the-most-stunning-red-ball-gowns-in-the-world/)
-- [turquoise ball gowns](https://fashion.allwomenstalk.com/jaw-dropping-turquoise-ball-gowns/)
 - [prom dress budget](https://fashion.allwomenstalk.com/stores-to-find-cute-prom-dresses-that-dont-cost-a-fortune/)
 - [christmas dress dinner](https://fashion.allwomenstalk.com/pick-one-of-these-fabulous-outfits-for-christmas-dinner/)
+- [fabulous bridal](https://wedding.allwomenstalk.com/fabulous-wedding-veils-to-go-with-your-gown/)
+- [turquoise ball gowns](https://fashion.allwomenstalk.com/jaw-dropping-turquoise-ball-gowns/)
 - [hot holiday dresses](https://fashion.allwomenstalk.com/ridiculously-sexy-holiday-dresses/)
+- [dresses for winter formal high school](https://teen.allwomenstalk.com/stunning-winter-formal-dresses/)
+- [masquerade party outfit male](https://lifestyle.allwomenstalk.com/masquerade-masks-for-men-and-women-elegant-pieces-for-every-special-occasion/)
 - [4 Sparkly Wedding Gowns That Will Keep You Shining...](https://wedding.allwomenstalk.com/4-sparkly-wedding-gowns-that-will-keep-you-shining/)
 - [7 Sexy Jewel-Toned Party Dresses That Will Make Yo...](https://fashion.allwomenstalk.com/sexy-jewel-toned-party-dresses-that-will-make-you-the-queen-of-the-party/)
 

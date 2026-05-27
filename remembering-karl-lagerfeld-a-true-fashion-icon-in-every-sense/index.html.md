@@ -3,7 +3,7 @@ title: "Remembering Karl Lagerfeld: a TRUE Fashion Icon in Every Sense ..."
 description: "Kendall Jenner; Cara Delevingne; Ines De La Fressange; Gemma Ward; Stella Tennant; More ..."
 url: "https://fashion.allwomenstalk.com/remembering-karl-lagerfeld-a-true-fashion-icon-in-every-sense/"
 category: "fashion"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Remembering Karl Lagerfeld: a TRUE Fashion Icon in Every Sense ...
@@ -106,16 +106,16 @@ We’ve seen the women who this iconic fashion legend found inspiration in, and 
 
 ## Related Posts
 
-- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
-- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
-- [From Trampy to Trendy](https://allwomenstalk.com/from-trampy-to-trendy/)
 - [gold by giles](https://allwomenstalk.com/going-for-gold-cq-checks-out-the-giles-deacon-for-new-look-collection/)
-- [Get in with Tube Fashion](https://allwomenstalk.com/get-in-with-tube-fashion/)
-- [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
 - [Fashion Misfit](https://allwomenstalk.com/fashion-misfit-catwalk-queen/)
-- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
-- [hishers boutique](https://allwomenstalk.com/standard-style-his-and-hers-fashion-forward-boutique-couture-in-the-city-fashion-blog/)
+- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
+- [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
+- [Get in with Tube Fashion](https://allwomenstalk.com/get-in-with-tube-fashion/)
 - [the dark side of fashion](https://allwomenstalk.com/from-the-fringes-of-fashion-isabelle-explores-the-dark-side-of-charity-shopping/)
+- [hishers boutique](https://allwomenstalk.com/standard-style-his-and-hers-fashion-forward-boutique-couture-in-the-city-fashion-blog/)
+- [From Trampy to Trendy](https://allwomenstalk.com/from-trampy-to-trendy/)
+- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
+- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
 - [Fashion Week: Marc Bouwer ...](https://allwomenstalk.com/fashion-week-marc-bouwer/)
 - [Fashion Week: Diane Von Furstenberg ...](https://allwomenstalk.com/fashion-week-diane-von-furstenberg/)
 

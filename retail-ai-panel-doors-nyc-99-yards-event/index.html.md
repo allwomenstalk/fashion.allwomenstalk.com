@@ -3,7 +3,7 @@ title: "Retail 3.0 - A Night Where Fashion Technology and Storytelling Merged to
 description: "Alise Trautmane-Uzuner: Designing a Cultural Space for the Future of Fashion; Tony Henry and the Vision of 99 YARDS; The Panel: Innovation With a Human Pulse; Spotlight: Left Knee Patch – A Beautiful Rewear Story; A Glimpse Into What’s Next; More ..."
 url: "https://fashion.allwomenstalk.com/retail-ai-panel-doors-nyc-99-yards-event/"
 category: "fashion"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Retail 3.0 \- A Night Where Fashion Technology and Storytelling Merged to Redefine the Future of Retail
