@@ -3,7 +3,7 @@ title: "7 Most Stylish TV Characters ..."
 description: "Carrie Bradshaw; Blair Waldorf; Summer Roberts; Jess Day; Betty Draper; More ..."
 url: "https://fashion.allwomenstalk.com/most-stylish-tv-characters/"
 category: "fashion"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Most Stylish TV Characters ...
@@ -56,16 +56,16 @@ These are just a few TV characters with a sense of style. From spoilt teens to d
 
 ## Related Posts
 
-- [structured maxi skirt](https://celebs.allwomenstalk.com/celebrities-wearing-maxi-skirts-who-wore-it-best/)
-- [celebrities 54](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
-- [celebrities in all white outfits](https://celebs.allwomenstalk.com/celebrities-wearing-all-white-outfits-who-wore-it-best/)
-- [floral dress celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-floral-dresses-who-wore-it-best/)
-- [celebrity short dresses](https://celebs.allwomenstalk.com/celebrities-wearing-lace-dresses-who-wore-it-best/)
-- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
-- [celebrity festival outfits](https://celebs.allwomenstalk.com/celebrities-festival-fashion-who-wore-it-best/)
-- [celebrities in polka dot dress](https://celebs.allwomenstalk.com/celebrities-wearing-polka-dots-who-wore-it-best/)
-- [jordana brewster](https://celebs.allwomenstalk.com/celebrities-wearing-printed-pants-who-wore-it-best/)
 - [female celebrities wearing leather jackets](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
+- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
+- [celebrities 54](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
+- [floral dress celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-floral-dresses-who-wore-it-best/)
+- [jordana brewster](https://celebs.allwomenstalk.com/celebrities-wearing-printed-pants-who-wore-it-best/)
+- [celebrity short dresses](https://celebs.allwomenstalk.com/celebrities-wearing-lace-dresses-who-wore-it-best/)
+- [celebrity festival outfits](https://celebs.allwomenstalk.com/celebrities-festival-fashion-who-wore-it-best/)
+- [celebrities in all white outfits](https://celebs.allwomenstalk.com/celebrities-wearing-all-white-outfits-who-wore-it-best/)
+- [structured maxi skirt](https://celebs.allwomenstalk.com/celebrities-wearing-maxi-skirts-who-wore-it-best/)
+- [celebrities in polka dot dress](https://celebs.allwomenstalk.com/celebrities-wearing-polka-dots-who-wore-it-best/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [7 Most Fashionable First Ladies ...](https://fashion.allwomenstalk.com/7-most-fashionable-first-ladies/)
 

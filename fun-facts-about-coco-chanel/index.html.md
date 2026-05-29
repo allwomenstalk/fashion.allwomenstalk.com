@@ -3,7 +3,7 @@ title: "7 Fun Facts about Coco Chanel ..."
 description: "She Made the Tan Popular; She Sprayed Chanel No 5 Throughout Her Home; Her Real Name is Gabrielle; She Was a Licensed Hat Maker; She Invented the Little Black Dress; More ..."
 url: "https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/"
 category: "fashion"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Fun Facts about Coco Chanel ...
@@ -44,14 +44,14 @@ Coco Chanel is still one of the most well known names in fashion to this day. Sh
 
 - [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
-- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
-- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
-- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
-- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
-- [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
+- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
+- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
 - [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
+- [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
+- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
+- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
 - [Fashion Icons - 7 Things You Should Know about Coc...](https://allwomenstalk.com/fashion-icons-ae-7-things-what-you-should-know-about-coco-chanel/)
 - [7 Great Fashion Blogs ...](https://allwomenstalk.com/7-great-fashion-blogs/)
 

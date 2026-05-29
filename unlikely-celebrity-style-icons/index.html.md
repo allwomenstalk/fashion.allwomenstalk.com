@@ -3,7 +3,7 @@ title: "7 Unlikely Celebrity Style Icons ..."
 description: "Victoria Beckham; Kanye West; Detective Sarah Lund; Mary Berry; Alexa Chung; More ..."
 url: "https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/"
 category: "fashion"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Unlikely Celebrity Style Icons ...
@@ -42,16 +42,16 @@ Perhaps it’s not what you wear that matters, but rather how you wear it. Maybe
 
 ## Related Posts
 
-- [celebrities that give back](https://celebs.allwomenstalk.com/celebrities-who-give-back/)
-- [will demps wife](https://celebs.allwomenstalk.com/hottest-football-stars/)
-- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
-- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
 - [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
 - [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
-- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
-- [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
 - [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
+- [will demps wife](https://celebs.allwomenstalk.com/hottest-football-stars/)
+- [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
+- [celebrities that give back](https://celebs.allwomenstalk.com/celebrities-who-give-back/)
+- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
 - [famous tv parents](https://celebs.allwomenstalk.com/celebrities-who-are-only-famous-because-of-their-parents/)
+- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
+- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 
