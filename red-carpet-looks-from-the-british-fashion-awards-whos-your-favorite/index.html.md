@@ -3,7 +3,7 @@ title: "Red Carpet Looks from the British Fashion Awards - Whos Your Favorite?"
 description: "Kendall Jenner; Rihanna; Emma Watson; Victoria Beckham; Karlie Kloss; More ..."
 url: "https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/"
 category: "fashion"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Red Carpet Looks from the British Fashion Awards \- Whos Your Favorite?
@@ -74,16 +74,16 @@ Who do you think had the best red carpet look?
 
 ## Related Posts
 
+- [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
 - [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
-- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
 - [2015 oscar best movie nominees](https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/)
 - [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
-- [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
 - [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
 - [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
+- [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
 - [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
-- [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
-- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
+- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
 - [Who Was Best Dressed at the Sex and the City 2 in ...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
 - [Celebrity Fashion Face-off: Pick Your Winners ...](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
 

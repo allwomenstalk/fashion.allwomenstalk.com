@@ -3,7 +3,7 @@ title: "7 New Trends from NY Fashion Week to Sport Now ..."
 description: "The Plum Pout (as Seen in Rebecca Minkoff’s Show); Pretty Florals; Big, Bold Oversized Coats (as Seen in Diane Von Furstenberg’s Show); City Chic (as Seen in DKNY’s Show); Sexy and Sleeveless (as Seen in Victoria Beckham’s Show); More ..."
 url: "https://fashion.allwomenstalk.com/new-trends-from-ny-fashion-week-to-sport-now/"
 category: "fashion"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 New Trends from NY Fashion Week to Sport Now ...
@@ -56,16 +56,16 @@ New York Fashion Week was definitely the place to be , and the designers really 
 
 ## Related Posts
 
-- [7 Trends That Are over and out This Year ...](https://fashion.allwomenstalk.com/trends-that-are-over-and-out-this-year/)
-- [7 Streetstyle Ways to Rock the Floral Trend This S...](https://streetstyle.allwomenstalk.com/streetstyle-ways-to-rock-the-floral-trend-this-spring/)
-- [9 Fashion Week Trends to Take Notice of Now ...](https://fashion.allwomenstalk.com/fashion-week-trends-to-take-notice-of-now/)
-- [9 Fashion Essentials for Spring 2014 ...](https://fashion.allwomenstalk.com/fashion-essentials-for-spring/)
-- [kristin cavalri](https://shoes.allwomenstalk.com/spring-shoe-trends-to-fall-in-love-with/)
-- [7 New Beauty Trends for Spring 2014 ...](https://beauty.allwomenstalk.com/new-beauty-trends-for-spring/)
 - [7 Health Trends to Get on Board with This Year ...](https://vityle.com/health-trends-to-get-on-board-with-this-year/)
-- [7 Ways to Channel the Opulence Trend This Spring ....](https://fashion.allwomenstalk.com/ways-to-channel-the-opulence-trend-this-spring/)
+- [7 New Beauty Trends for Spring 2014 ...](https://beauty.allwomenstalk.com/new-beauty-trends-for-spring/)
+- [kristin cavalri](https://shoes.allwomenstalk.com/spring-shoe-trends-to-fall-in-love-with/)
+- [9 Fashion Essentials for Spring 2014 ...](https://fashion.allwomenstalk.com/fashion-essentials-for-spring/)
+- [7 Trends That Are over and out This Year ...](https://fashion.allwomenstalk.com/trends-that-are-over-and-out-this-year/)
 - [7 Ways to Rock the Tribal Trend This Spring ...](https://fashion.allwomenstalk.com/ways-to-rock-the-tribal-trend-this-spring/)
 - [spring 2014 fashion trends](https://fashion.allwomenstalk.com/wardrobe-must-haves-for-spring/)
+- [7 Streetstyle Ways to Rock the Floral Trend This S...](https://streetstyle.allwomenstalk.com/streetstyle-ways-to-rock-the-floral-trend-this-spring/)
+- [9 Fashion Week Trends to Take Notice of Now ...](https://fashion.allwomenstalk.com/fashion-week-trends-to-take-notice-of-now/)
+- [7 Ways to Channel the Opulence Trend This Spring ....](https://fashion.allwomenstalk.com/ways-to-channel-the-opulence-trend-this-spring/)
 - [7 Latest Fashion Trends to Try out ...](https://fashion.allwomenstalk.com/latest-fashion-trends-to-try-out/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 

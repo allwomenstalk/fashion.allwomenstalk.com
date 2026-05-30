@@ -3,7 +3,7 @@ title: "8 Worst Fashion Trends That Need to Go in 2017 ..."
 description: "OVERALLS; SCRUNCHIES; JESUS SANDaLS; BODYSUITS; NON PreSCRIPTION GLASSES; More ..."
 url: "https://fashion.allwomenstalk.com/worst-fashion-trends/"
 category: "fashion"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Worst  Fashion Trends That Need to Go in 2017 ...
@@ -61,15 +61,15 @@ It's not "Hammer Time" anymore. Hammer pants aren't cute and it makes you look l
 ## Related Posts
 
 - [mahogany salon](https://hair.allwomenstalk.com/trending-hair-colors-summer/)
-- [2017 hair trends](https://hair.allwomenstalk.com/top-hairstyle-trends-summer-london/)
-- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
-- [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
-- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
-- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
 - [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
 - [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
+- [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
+- [2017 hair trends](https://hair.allwomenstalk.com/top-hairstyle-trends-summer-london/)
 - [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
+- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
+- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
 - [10 Ugliest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 - [7 Awfully Outrageous Celebrity Trends I Hate ...](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
 

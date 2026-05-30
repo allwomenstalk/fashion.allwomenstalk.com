@@ -3,7 +3,7 @@ title: "These 23 Photos Prove the 2015 CFDAs Had the Best Red Carpet Ever!"
 description: "Gigi Hadid Was Golden!; Chrissy Teigen (and Her Higher-than-intended Slit); Tory Burch Was Colorful; Jemima Kirke Wore Ravishing a Red Two-piece; Karlie Kloss Wore Polka Dots, a Plunging Neckline, and Flats!; More ..."
 url: "https://fashion.allwomenstalk.com/these-photos-prove-the-cfdas-had-the-best-red-carpet-ever/"
 category: "fashion"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # These 23 Photos Prove the 2015 CFDAs Had the Best Red Carpet Ever!
@@ -106,16 +106,16 @@ This year's CFDAs were amazing, as usual, with winners we expected and few surpr
 
 ## Related Posts
 
-- [The Best Dressed Celebrities at the 2016 Grammys W...](https://celebs.allwomenstalk.com/the-best-dressed-celebrities-at-the-grammys-are/)
-- [10 Stunning Looks from 2016 Golden Globes We Still...](https://celebs.allwomenstalk.com/stunning-looks-from-golden-globes-we-still-can-not-get-over/)
-- [Fashion Awards: the Winners from CFDA 2015 ...](https://fashion.allwomenstalk.com/fashion-awards-the-winners-from-cfda/)
-- [And the Best Dressed Celebrities at the Golden Glo...](https://fashion.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-golden-globes-were/)
-- [10 Stunning Looks from 2016 Oscars to Copy This Sp...](https://celebs.allwomenstalk.com/stunning-looks-from-oscars-to-copy-this-spring/)
-- [How Your Fav Stars Grammy Styles Have Changed over...](https://fashion.allwomenstalk.com/how-your-fav-stars-grammy-styles-have-changed-over-the-years/)
 - [44 of the Best Dressed at Lollapalooza 2015 Accord...](https://fashion.allwomenstalk.com/of-the-best-dressed-at-lollapalooza-according-to-the-style-gurus/)
-- [The Most Gorgeous Red Carpet Gowns of 2015 ...](https://fashion.allwomenstalk.com/the-most-gorgeous-red-carpet-gowns-of/)
+- [Fashion Awards: the Winners from CFDA 2015 ...](https://fashion.allwomenstalk.com/fashion-awards-the-winners-from-cfda/)
+- [The Best Dressed Celebrities at the 2016 Grammys W...](https://celebs.allwomenstalk.com/the-best-dressed-celebrities-at-the-grammys-are/)
 - [The Best Celeb Instagram Photos from the 2016 Gram...](https://celebs.allwomenstalk.com/the-best-celeb-instagram-photos-from-the-grammys/)
+- [10 Stunning Looks from 2016 Oscars to Copy This Sp...](https://celebs.allwomenstalk.com/stunning-looks-from-oscars-to-copy-this-spring/)
+- [10 Stunning Looks from 2016 Golden Globes We Still...](https://celebs.allwomenstalk.com/stunning-looks-from-golden-globes-we-still-can-not-get-over/)
+- [The Most Gorgeous Red Carpet Gowns of 2015 ...](https://fashion.allwomenstalk.com/the-most-gorgeous-red-carpet-gowns-of/)
+- [How Your Fav Stars Grammy Styles Have Changed over...](https://fashion.allwomenstalk.com/how-your-fav-stars-grammy-styles-have-changed-over-the-years/)
 - [And These Were the Winning Red Carpet Looks at the...](https://celebs.allwomenstalk.com/and-these-were-the-winning-red-carpet-looks-at-the-oscars/)
+- [And the Best Dressed Celebrities at the Golden Glo...](https://fashion.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-golden-globes-were/)
 - [11 Floral Red Carpet Looks from the Celebrities  W...](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
 - [7 Sheer Panel Outfits That Took over the Red Carpe...](https://fashion.allwomenstalk.com/sheer-panel-outfits-that-took-over-the-red-carpet/)
 

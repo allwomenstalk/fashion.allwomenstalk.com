@@ -3,7 +3,7 @@ title: "9 Bizarre Underwear Trends from the Last Century to Now ..."
 description: "Crotchless Pants; Camis; High Waists; Girdles and Garters; Playful Panties; More ..."
 url: "https://fashion.allwomenstalk.com/bizarre-underwear-trends-from-the-last-century/"
 category: "fashion"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 9 Bizarre Underwear Trends from the Last Century to Now ...
@@ -50,16 +50,16 @@ Which underwear trends are your favourites? I’d love to rock a girter for a wh
 
 ## Related Posts
 
-- [rippable lingerie](https://fashion.allwomenstalk.com/adorable-but-affordable-sites-for-buying-lingerie/)
+- [lace babydoll](https://fashion.allwomenstalk.com/pieces-of-babydoll-lingerie-to-tease-and-tempt/)
 - [lingerie for valentines day](https://fashion.allwomenstalk.com/best-lingerie-options-to-wear-on-valentines-day/)
-- [spring break swimsuits](https://fashion.allwomenstalk.com/beautiful-bathing-suits-for-your-best-spring-break-yet/)
 - [intimacy victoria secret perfume](https://love.allwomenstalk.com/intimacy-tips-from-victorias-secret-models/)
+- [warrior pose](https://fitness.allwomenstalk.com/yoga-poses-thatll-keep-your-breasts-firm-and-fabulous/)
+- [rippable lingerie](https://fashion.allwomenstalk.com/adorable-but-affordable-sites-for-buying-lingerie/)
 - [home made lingerie](https://diy.allwomenstalk.com/beautiful-lingerie-you-can-sew-yourself/)
-- [Here Are the 7 Most Common Causes of Saggy Breasts...](https://beauty.allwomenstalk.com/here-are-the-most-common-causes-of-saggy-breasts/)
+- [spring break swimsuits](https://fashion.allwomenstalk.com/beautiful-bathing-suits-for-your-best-spring-break-yet/)
 - [unique tights](https://fashion.allwomenstalk.com/websites-for-unique-leggings-thatll-make-your-butt-look-amazing/)
 - [hourglass figure in jeans](https://fashion.allwomenstalk.com/what-kind-of-jeans-are-the-best-type-for-your-body/)
-- [warrior pose](https://fitness.allwomenstalk.com/yoga-poses-thatll-keep-your-breasts-firm-and-fabulous/)
-- [lace babydoll](https://fashion.allwomenstalk.com/pieces-of-babydoll-lingerie-to-tease-and-tempt/)
+- [Here Are the 7 Most Common Causes of Saggy Breasts...](https://beauty.allwomenstalk.com/here-are-the-most-common-causes-of-saggy-breasts/)
 - [9 Fall Fashion Trends of 2011 ...](https://fashion.allwomenstalk.com/fall-fashion-trends-of/)
 - [9 Hot Trends in Luxury Swimwear for 2012 ...](https://fashion.allwomenstalk.com/hot-trends-in-luxury-swimwear-for/)
 
