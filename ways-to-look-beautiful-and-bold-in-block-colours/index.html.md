@@ -12,11 +12,14 @@ Block colours are the ultimate way to achieve a bold, beautiful look that shows 
 
 Here are a few quick tips before we start:
 
-- **Mix and match** contrasting shades.
+-
+**Mix and match** contrasting shades.
 
-- **Keep accessories simple** to let the colors shine.
+-
+**Keep accessories simple** to let the colors shine.
 
-- **Experiment** with different textures.
+-
+**Experiment** with different textures.
 
 ## 1. Crop Top
 
@@ -62,11 +65,21 @@ Finish your look with a classic pump heel in a bold colour like fire-engine red 
 
 To help you plan your outfits, here is a quick color pairing guide:
 
-| Primary Color | Complementary Color | Best Garment Choice |
-| :--- | :--- | :--- |
-| Electric Blue | Bright Orange | Fitted Dress |
-| Fire-Engine Red | Classic Black | Pump Heels |
-| Light Pink | Navy Blue | Crop Top |
+Primary Color
+Complementary Color
+Best Garment Choice
+
+Electric Blue
+Bright Orange
+Fitted Dress
+
+Fire-Engine Red
+Classic Black
+Pump Heels
+
+Light Pink
+Navy Blue
+Crop Top
 
 ## Related Posts
 
