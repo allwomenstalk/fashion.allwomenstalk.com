@@ -3,7 +3,7 @@ title: "Ditch These Drab Fashion Trends ..."
 description: "Rainbow Hair; Leggings as Pants; Flower Crowns 🌺; Super Short Shorts; Too Tight Skinny Jeans; More ..."
 url: "https://fashion.allwomenstalk.com/ditch-these-drab-fashion-trends-in/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Ditch These Drab Fashion Trends ...
@@ -56,16 +56,16 @@ These’re the 7 fashion trends to ditch in 2022. Do you need to weed any of the
 
 ## Related Posts
 
-- [how to wear a winter hat and look cute](https://streetstyle.allwomenstalk.com/streetstyle-ways-to-wear-a-winter-hat/)
-- [look goth](https://fashion.allwomenstalk.com/how-every-woman-can-incorporate-gothic-elements-into-her-look/)
-- [skirt blazer combo](https://fashion.allwomenstalk.com/stunning-ways-to-style-a-blazer/)
-- [you look fab](https://fashion.allwomenstalk.com/these-fashion-hacks-will-help-you-look-fab-247/)
-- [how to wear alexander mcqueen scarf](https://fashion.allwomenstalk.com/need-more-ideas-on-how-to-wear-your-scarf/)
+- [cute turtlenecks](https://fashion.allwomenstalk.com/how-to-make-turtlenecks-look-cute-again/)
 - [how to cut tights without ruining them](https://fashion.allwomenstalk.com/ways-youre-ruining-your-leggings-without-even-realizing-it/)
+- [rainbow balayage](https://hair.allwomenstalk.com/how-you-can-rock-the-rainbow-trend-today/)
+- [you look fab](https://fashion.allwomenstalk.com/these-fashion-hacks-will-help-you-look-fab-247/)
+- [skirt blazer combo](https://fashion.allwomenstalk.com/stunning-ways-to-style-a-blazer/)
+- [look goth](https://fashion.allwomenstalk.com/how-every-woman-can-incorporate-gothic-elements-into-her-look/)
 - [daisy ridley lips](https://celebs.allwomenstalk.com/how-to-steal-the-style-of-star-wars-daisy-ridley/)
 - [body rock trend](https://makeup.allwomenstalk.com/how-can-you-rock-the-graphic-liner-trend-today/)
-- [cute turtlenecks](https://fashion.allwomenstalk.com/how-to-make-turtlenecks-look-cute-again/)
-- [rainbow balayage](https://hair.allwomenstalk.com/how-you-can-rock-the-rainbow-trend-today/)
+- [how to wear alexander mcqueen scarf](https://fashion.allwomenstalk.com/need-more-ideas-on-how-to-wear-your-scarf/)
+- [how to wear a winter hat and look cute](https://streetstyle.allwomenstalk.com/streetstyle-ways-to-wear-a-winter-hat/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [Catwalk Fashion Trends](https://allwomenstalk.com/catwalk-fashion-trends/)
 

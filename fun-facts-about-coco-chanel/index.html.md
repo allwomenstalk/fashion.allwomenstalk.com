@@ -3,7 +3,7 @@ title: "7 Fun Facts about Coco Chanel ..."
 description: "She Made the Tan Popular; She Sprayed Chanel No 5 Throughout Her Home; Her Real Name is Gabrielle; She Was a Licensed Hat Maker; She Invented the Little Black Dress; More ..."
 url: "https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Fun Facts about Coco Chanel ...
@@ -43,15 +43,15 @@ Coco Chanel is still one of the most well known names in fashion to this day. Sh
 ## Related Posts
 
 - [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
-- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
-- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
 - [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
-- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
+- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
 - [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
 - [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
+- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
+- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
 - [Fashion Icons - 7 Things You Should Know about Coc...](https://allwomenstalk.com/fashion-icons-ae-7-things-what-you-should-know-about-coco-chanel/)
 - [7 Great Fashion Blogs ...](https://allwomenstalk.com/7-great-fashion-blogs/)
 

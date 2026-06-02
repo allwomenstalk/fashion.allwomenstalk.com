@@ -3,7 +3,7 @@ title: "9 90s Trends That Need to Make a Comeback ..."
 description: "Capri Pants; JNCO Jeans; Crushed Velvet Baby Doll Dresses; Scrunchies; Platform Mary Janes; More ..."
 url: "https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 90s Trends That Need to Make a Comeback ...
@@ -68,16 +68,16 @@ Of course not all 90s fashion was so fabulous. Remember see-through plastic purs
 
 ## Related Posts
 
-- [maroon matching colors](https://fashion.allwomenstalk.com/new-color-combinations-to-try-this-fall/)
-- [fall denim trends](https://fashion.allwomenstalk.com/fabulous-denim-trends-to-try-this-fall/)
-- [most fashionable watches](https://fashion.allwomenstalk.com/most-trendy-watches/)
+- [flashy attire](https://fashion.allwomenstalk.com/flashy-trends-that-wont-make-you-look-tacky/)
 - [terrible 2000s fashion](https://fashion.allwomenstalk.com/worst-fashion-trends-of-the-2000s-we-wish-we-could-erase/)
-- [2013 trends](https://fashion.allwomenstalk.com/best-trends-of-that-we-all-loved/)
+- [food trends 2014](https://food.allwomenstalk.com/food-trends-we-cant-wait-for-in/)
+- [maroon matching colors](https://fashion.allwomenstalk.com/new-color-combinations-to-try-this-fall/)
 - [2013 mustache trend](https://lifestyle.allwomenstalk.com/fantastic-trends-in-i-cant-help-but-love/)
+- [2013 trends](https://fashion.allwomenstalk.com/best-trends-of-that-we-all-loved/)
+- [most fashionable watches](https://fashion.allwomenstalk.com/most-trendy-watches/)
+- [fall denim trends](https://fashion.allwomenstalk.com/fabulous-denim-trends-to-try-this-fall/)
 - [make up trends winter](https://makeup.allwomenstalk.com/wicked-winter-makeup-trends-to-look-out-for/)
 - [spring fashion 2014](https://fashion.allwomenstalk.com/truly-fabulous-trends-for-spring/)
-- [food trends 2014](https://food.allwomenstalk.com/food-trends-we-cant-wait-for-in/)
-- [flashy attire](https://fashion.allwomenstalk.com/flashy-trends-that-wont-make-you-look-tacky/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [9 New Fashion Trends to Try ...](https://fashion.allwomenstalk.com/new-fashion-trends-to-try/)
 

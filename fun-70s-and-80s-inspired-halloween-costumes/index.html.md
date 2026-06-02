@@ -3,7 +3,7 @@ title: "9 Fun 70s and 80s Inspired Halloween Costumes ..."
 description: "Strawberry Shortcake; Wonder Woman; Rainbow Brite; Smurfette; Jem; More ..."
 url: "https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Fun 70s and 80s Inspired Halloween Costumes ...
@@ -68,16 +68,16 @@ Whether you grew up in the 70s, 80s, or beyond, you should try out this great co
 
 ## Related Posts
 
-- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
-- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
-- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
-- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
-- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
 - [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
 - [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
-- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
-- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
 - [things to do in salem during halloween](https://travel.allwomenstalk.com/stunning-shots-of-halloween-in-salem/)
+- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
+- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
+- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
+- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
+- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
+- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
 - [25 Awesome Celebrity Halloween Costumes ...](https://celebs.allwomenstalk.com/25-awesome-celebrity-halloween-costumes/)
 - [8 Hilarious Halloween Costumes ...](https://lifestyle.allwomenstalk.com/hilarious-halloween-costumes/)
 

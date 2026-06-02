@@ -3,7 +3,7 @@ title: "7 Ways Mamie Eisenhower Contributed to Fashion in the 1950s ..."
 description: "Love of Fashion; The New Look; Pink and More Pink; Extravagant Fur; Charm Bracelets; More ..."
 url: "https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Ways Mamie Eisenhower Contributed to Fashion in the 1950s ...
@@ -45,15 +45,15 @@ Marling, Karal Ann. As Seen on TV -The Visual Culture of Everyday Life in the 19
 
 ## Related Posts
 
+- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
 - [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
 - [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
-- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
-- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
-- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
-- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
 - [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
+- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
+- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
+- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
 - [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
-- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
+- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
 - [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
 - [7 Most Fashionable First Ladies ...](https://fashion.allwomenstalk.com/7-most-fashionable-first-ladies/)
 - [5 Hollywood Moms with Great Street Style ...](https://allwomenstalk.com/5-hollywood-moms-with-great-street-style/)

@@ -3,7 +3,7 @@ title: "7 Surprises from New York Fashion Week ..."
 description: "Liberty Ross at Alexander Wang; A Glow in the Dark Finale; A Successful Celebrity Designer; Fake Fashion Week Tweets; Naomi Campbell at Zac Posen; More ..."
 url: "https://fashion.allwomenstalk.com/surprises-from-new-york-fashion-week/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Surprises from New York Fashion Week ...
@@ -56,16 +56,16 @@ It’s the unexpected moments that often get a lot of buzz at New York Fashion W
 
 ## Related Posts
 
+- [7 Books to Take Fashion Inspiration from ...](https://fashion.allwomenstalk.com/books-to-take-fashion-inspiration-from/)
+- [7 Life Lessons We Learnt from Project Runway ...](https://lifestyle.allwomenstalk.com/life-lessons-we-learnt-from-project-runway/)
+- [New York Fashion Week Day 4 round up](https://allwomenstalk.com/new-york-fashion-week-day-4-round-up/)
 - [7 Fashion Designers Who Have a Great Fall 2013 Col...](https://fashion.allwomenstalk.com/fashion-designers-who-have-a-great-fall-collection/)
 - [7 Statement Looks from the New Kate Middleton Coll...](https://fashion.allwomenstalk.com/statement-looks-from-the-new-kate-middleton-collection/)
-- [7 Books to Take Fashion Inspiration from ...](https://fashion.allwomenstalk.com/books-to-take-fashion-inspiration-from/)
 - [7 of Kate Middletons Best Looks as the Royal Baby ...](https://fashion.allwomenstalk.com/of-kate-middletons-best-looks-as-the-royal-baby-is-on-its-way/)
+- [7 Fab Trendsetting Television Shows Every Fashioni...](https://fashion.allwomenstalk.com/fab-trendsetting-television-shows-every-fashionista-will-love/)
 - [7 Fashion Week Looks Youll Love ...](https://fashion.allwomenstalk.com/fashion-week-looks-youll-love/)
 - [7 Celebrities with a Questionable Yet Cool Fashion...](https://fashion.allwomenstalk.com/celebrities-with-a-questionable-yet-cool-fashion-sense/)
 - [7 Things to Love about Fashion Today ...](https://fashion.allwomenstalk.com/things-to-love-about-fashion-today/)
-- [7 Life Lessons We Learnt from Project Runway ...](https://lifestyle.allwomenstalk.com/life-lessons-we-learnt-from-project-runway/)
-- [7 Fab Trendsetting Television Shows Every Fashioni...](https://fashion.allwomenstalk.com/fab-trendsetting-television-shows-every-fashionista-will-love/)
-- [New York Fashion Week Day 4 round up](https://allwomenstalk.com/new-york-fashion-week-day-4-round-up/)
 - [Fall 2007 Fashion Week Countdown ...](https://allwomenstalk.com/fall-fashion-week-countdown/)
 - [Top 10 Highlights from LA Fashion Week ...](https://allwomenstalk.com/top-10-highlights-from-la-fashion-week/)
 

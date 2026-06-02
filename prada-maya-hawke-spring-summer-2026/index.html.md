@@ -3,7 +3,7 @@ title: "Maya Hawke Steals the Spotlight at Prada’s Spring Summer 2026 Milan Sh
 description: "When Milan Meets Prada: The Ultimate Spring/Summer 2026 Moment; Maya Hawke: Prada’s Muse in Motion; The Power of Color: Orange You Glad It’s Prada?; Accessories That Speak Volumes; Why Everyone’s Talking About #PradaSS26; More ..."
 url: "https://fashion.allwomenstalk.com/prada-maya-hawke-spring-summer-2026/"
 category: "bags"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Maya Hawke Steals the Spotlight at Prada’s Spring Summer 2026 Milan Show

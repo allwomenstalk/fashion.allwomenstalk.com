@@ -3,7 +3,7 @@ title: "8 Trends in Eyewear for Spring 2013 ..."
 description: "Round Frames; Cat Eye Frames; Mirrored Lenses; Oversized Frames; Decorated Frames; More ..."
 url: "https://fashion.allwomenstalk.com/trends-in-eyewear-for-spring/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Trends in Eyewear for Spring 2013 ...
@@ -62,14 +62,14 @@ Show-stopping eyewear is where it’s at this spring. Instantly update your spri
 
 - [spring 2013 fashion trends](https://shoes.allwomenstalk.com/shoe-trends-for-spring/)
 - [paris riche stylo smoky endless](https://makeup.allwomenstalk.com/spring-makeup-trends/)
-- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
+- [emitaz height](https://fashion.allwomenstalk.com/denim-trends-to-try-right-now/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/eyeglass-trends-for/)
+- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
 - [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
 - [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
-- [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
-- [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
-- [emitaz height](https://fashion.allwomenstalk.com/denim-trends-to-try-right-now/)
 - [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
+- [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
+- [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
 - [8 Affordable Spring Trends ...](https://fashion.allwomenstalk.com/affordable-spring-trends/)
 - [8 Hot Trends for the Spring 2011 ...](https://fashion.allwomenstalk.com/hot-trends-for-the-spring/)
 

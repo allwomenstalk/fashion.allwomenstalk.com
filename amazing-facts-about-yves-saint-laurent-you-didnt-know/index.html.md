@@ -3,7 +3,7 @@ title: "7 Amazing Facts about Yves Saint Laurent You Didnt Know ..."
 description: "He First Designed Dresses for His Sisters; He Was Bullied in School; He Worked for Christian Dior; Sadly the Army Got to Him; He Feminized the Male Wardrobe; More ..."
 url: "https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Amazing Facts about Yves Saint Laurent You Didnt Know ...
@@ -45,14 +45,14 @@ He really was an inspiration for every fashion designer and his work had such a 
 
 ## Related Posts
 
+- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
 - [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
 - [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
-- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
-- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
-- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
 - [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
+- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
+- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
 - [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
+- [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
 - [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
 - [best looking minerals](https://lifestyle.allwomenstalk.com/most-beautiful-minerals-and-unique-facts-related-to-them/)
 - [7 Interesting Facts about Perfumes ...](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)

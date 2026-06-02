@@ -3,7 +3,7 @@ title: "9 Charming DIY Cut-out Tops and Dresses ..."
 description: "Skully; Men's Shirt; Lacy Heart; Bow Back; Cut-out Sides; More ..."
 url: "https://fashion.allwomenstalk.com/charming-diy-cut-out-tops-and-dresses/"
 category: "fashion"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Charming DIY Cut\-out Tops and Dresses ...
@@ -88,14 +88,14 @@ Top Photo Credit: [weheartit](https://weheartit.com/entry/14597045)
 
 - [beaded suncatcher diy](https://lifestyle.allwomenstalk.com/sweet-diy-sun-catchers-to-make/)
 - [diy mcm wall unit](https://lifestyle.allwomenstalk.com/marvelous-diy-mid-century-modern-home-projects/)
-- [adorable aprons](https://lifestyle.allwomenstalk.com/adorable-diy-aprons-to-sew/)
-- [how to make belts](https://fashion.allwomenstalk.com/more-diy-belts-to-make/)
-- [wind chimes to make](https://lifestyle.allwomenstalk.com/creative-diy-wind-chimes/)
-- [flower vase diy](https://lifestyle.allwomenstalk.com/gorgeous-and-creative-diy-flower-vases/)
-- [how to make a gatsby dress](https://fashion.allwomenstalk.com/fantastic-flapper-fashion-diy-projects/)
 - [wood diy charging station](https://lifestyle.allwomenstalk.com/nifty-diy-charging-stations/)
+- [adorable aprons](https://lifestyle.allwomenstalk.com/adorable-diy-aprons-to-sew/)
+- [wind chimes to make](https://lifestyle.allwomenstalk.com/creative-diy-wind-chimes/)
+- [how to make a gatsby dress](https://fashion.allwomenstalk.com/fantastic-flapper-fashion-diy-projects/)
 - [how to make a bird cage with cardboard](https://lifestyle.allwomenstalk.com/beautiful-birdcage-craft-projects/)
+- [flower vase diy](https://lifestyle.allwomenstalk.com/gorgeous-and-creative-diy-flower-vases/)
 - [camera bag diy](https://lifestyle.allwomenstalk.com/creative-diy-camera-cases/)
+- [how to make belts](https://fashion.allwomenstalk.com/more-diy-belts-to-make/)
 - [9 Cute Mod Dresses ...](https://fashion.allwomenstalk.com/cute-mod-dresses/)
 - [9 Tasteful and Stylish Twist-Front Tops ...](https://fashion.allwomenstalk.com/tasteful-and-stylish-twist-front-tops/)
 
