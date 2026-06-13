@@ -1,12 +1,12 @@
 ---
-title: "42 Dresses Throughout History That Have Caused Timeless Scandals ..."
+title: "42 Dresses Throughout History ⏳ That Have Caused Timeless Scandals ..."
 description: "Theda Bara, 1917; Josephine Baker in the 1920s; Jean Harlow, 1932; Jean Harlow, 1933; Rita Hayworth, 1941; More ..."
 url: "https://fashion.allwomenstalk.com/dresses-throughout-history-that-have-caused-timeless-scandals/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 42 Dresses Throughout History  That Have Caused Timeless Scandals ...
+# 42 Dresses Throughout History ⏳ That Have Caused Timeless Scandals ...
 
 These 42 dresses throughout history have caused quite a scandal. According to MSN, these scandalous dresses have stood out in time and will forever be remembered. Oh, what a little skin can do! These dresses are just as famous as the women wearing them. Read on to see snapshots of these famous scandalous dresses.
 
@@ -288,18 +288,18 @@ What did you think of these scandalous dresses throughout history? Is there such
 
 ## Related Posts
 
-- [beautiful bridesmaids](https://wedding.allwomenstalk.com/bridesmaid-dresses-youll-want-to-wear/)
-- [costumes around the world images](https://fashion.allwomenstalk.com/traditional-costumes-around-the-world/)
 - [red dress model](https://fashion.allwomenstalk.com/how-to-wear-a-red-dress-like-a-model/)
-- [how to pick a prom dress](https://allwomenstalk.com/prom-dress-tips/)
-- [what mother of the bride should wear](https://wedding.allwomenstalk.com/what-should-the-mother-of-the-bride-wear/)
-- [perfect wedding dress](https://wedding.allwomenstalk.com/wedding-dress-tips-you-should-consider-to-pick-the-perfect-dress/)
-- [wedding dress silhouette guide](https://wedding.allwomenstalk.com/wedding-dress-style-guide/)
-- [bohemian gown for wedding](https://wedding.allwomenstalk.com/bohemian-bridal-gown-inspiration/)
 - [plus size halloween costumes for couples](https://lifestyle.allwomenstalk.com/flattering-halloween-costumes-for-plus-size-women/)
+- [how to pick a prom dress](https://allwomenstalk.com/prom-dress-tips/)
+- [perfect wedding dress](https://wedding.allwomenstalk.com/wedding-dress-tips-you-should-consider-to-pick-the-perfect-dress/)
+- [costumes around the world images](https://fashion.allwomenstalk.com/traditional-costumes-around-the-world/)
+- [bohemian gown for wedding](https://wedding.allwomenstalk.com/bohemian-bridal-gown-inspiration/)
+- [what mother of the bride should wear](https://wedding.allwomenstalk.com/what-should-the-mother-of-the-bride-wear/)
 - [maykool dresses](https://fashion.allwomenstalk.com/sexy-dresses-for-valentines-day/)
+- [beautiful bridesmaids](https://wedding.allwomenstalk.com/bridesmaid-dresses-youll-want-to-wear/)
+- [wedding dress silhouette guide](https://wedding.allwomenstalk.com/wedding-dress-style-guide/)
 - [25 Celebrity Wardrobe Malfunctions ...](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [Hollywoods Most Iconic Swimsuits Revealed ...](https://allwomenstalk.com/hollywoods-most-iconic-swimsuits-revealed/)
+- [Hollywood's Most Iconic Swimsuits Revealed ...](https://allwomenstalk.com/hollywoods-most-iconic-swimsuits-revealed/)
 
 ## Site Information
 

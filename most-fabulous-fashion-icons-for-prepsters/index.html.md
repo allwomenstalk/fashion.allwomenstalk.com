@@ -3,7 +3,7 @@ title: "7 Most Fabulous Fashion Icons for Prepsters ..."
 description: "Lilly Pulitzer; Jackie Kennedy; Kate Middleton; Blair Waldorf; Grace Kelly; More ..."
 url: "https://fashion.allwomenstalk.com/most-fabulous-fashion-icons-for-prepsters/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Most Fabulous Fashion Icons for Prepsters ...
@@ -56,16 +56,16 @@ The thing I love about these icons for prepsters is that they are timeless. Jack
 
 ## Related Posts
 
-- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
-- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
-- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
-- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
 - [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
 - [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
-- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
-- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
+- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
+- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
 - [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
 - [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
+- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
+- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
+- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
+- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
 - [7 Fashionably Iconic Prints ...](https://fashion.allwomenstalk.com/7-fashionably-iconic-prints/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 

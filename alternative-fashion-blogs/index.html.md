@@ -1,12 +1,12 @@
 ---
-title: "12 Alternative Fashion Blogs for Girls with an Edge ..."
+title: "12 Alternative Fashion Blogs for Girls with an Edge ‍ ..."
 description: "Olivia Emily; Alicia Hannah Naomi; Trashtastika; Poison Apple Print Shop; Dirty Flaws; More ..."
 url: "https://fashion.allwomenstalk.com/alternative-fashion-blogs/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 12 Alternative Fashion Blogs for Girls with an Edge  ...
+# 12 Alternative Fashion Blogs for Girls with an Edge ‍ ...
 
 Looking for some **alternative fashion blogs**? The world of fashion is an ever expanding and evolving one. The minute you think you might have found a signature style, another trend comes rolling along that you need to get involved with instead! It would be fair to say, however, that mainstream fashion isn’t always for everyone, and if you are somebody who seeks something a little more edgy in your personal style, then the internet is usually the place to turn to rather than print magazines. Here are fifteen fabulous **alternative fashion blogs** for girls with a bit of an edge!
 
@@ -104,16 +104,16 @@ Amy is a metal lover with a large grunge influence dictating her personal style.
 
 ## Related Posts
 
-- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-10/)
-- [award winning blog](https://allwomenstalk.com/create-an-award-winning-blog/)
-- [Geeks on Fashion Parade  Top Bloggers in Top Form ...](https://allwomenstalk.com/geeks-on-fashion-parade-top-bloggers-in-top-form/)
-- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-13/)
-- [Four Months Old- WednesdaysThursday Blog Aroundup ...](https://allwomenstalk.com/four-months-old-wednesdaysthursday-blog-aroundup/)
-- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-8/)
-- [News Web Blog Weekly round up ...](https://allwomenstalk.com/news-web-blog-weekly-round-up-ebelle5-handbags-purses-5/)
-- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-7/)
-- [News Web Blog Weekly round up ...](https://allwomenstalk.com/news-web-blog-weekly-round-up-ebelle5-handbags-purses-4/)
 - [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-9/)
+- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-10/)
+- [News Web Blog Weekly round up ...](https://allwomenstalk.com/news-web-blog-weekly-round-up-ebelle5-handbags-purses-4/)
+- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-13/)
+- [award winning blog](https://allwomenstalk.com/create-an-award-winning-blog/)
+- [News Web Blog Weekly round up ...](https://allwomenstalk.com/news-web-blog-weekly-round-up-ebelle5-handbags-purses-5/)
+- [Four Months Old- WednesdaysThursday Blog Aroundup ...](https://allwomenstalk.com/four-months-old-wednesdaysthursday-blog-aroundup/)
+- [Geeks on Fashion Parade | Top Bloggers in Top Form...](https://allwomenstalk.com/geeks-on-fashion-parade-top-bloggers-in-top-form/)
+- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-8/)
+- [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-7/)
 - [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds/)
 - [Friday Fashion Blog Favs ...](https://allwomenstalk.com/friday-fashion-blog-favs-the-it-lists-fashion-finds-2/)
 

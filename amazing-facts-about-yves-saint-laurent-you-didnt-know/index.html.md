@@ -1,12 +1,12 @@
 ---
-title: "7 Amazing Facts about Yves Saint Laurent You Didnt Know ..."
+title: "7 Amazing Facts about Yves Saint Laurent You Didn't Know ..."
 description: "He First Designed Dresses for His Sisters; He Was Bullied in School; He Worked for Christian Dior; Sadly the Army Got to Him; He Feminized the Male Wardrobe; More ..."
 url: "https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Amazing Facts about Yves Saint Laurent You Didnt Know ...
+# 7 Amazing Facts about Yves Saint Laurent You Didn't Know ...
 
 Because Yves Saint Laurent was such a true fashion guru and because he had such an extraordinary influence on the entire fashion world, I believe that every true fashionista must know at least a few facts about Yves Saint Laurent. He is well known for saying "Fashions fade, style is eternal" and that "We must never confuse elegance with snobbery" but I love him for believing that "The most beautiful makeup of a woman is passion. But cosmetics are easier to buy" and that "Over the years I have learned that what is important in a dress is the woman who is wearing it." He used to say that, because Chanel freed women, he was the one who empowered them. I’ll hope you’ll enjoy these few amazing facts about Yves Saint Laurent I will tell you about in the next lines, and that it will make you love him and his creations even more.
 
@@ -45,16 +45,16 @@ He really was an inspiration for every fashion designer and his work had such a 
 
 ## Related Posts
 
-- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
-- [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
-- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
-- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
-- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
-- [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
 - [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
-- [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
+- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
+- [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
 - [best looking minerals](https://lifestyle.allwomenstalk.com/most-beautiful-minerals-and-unique-facts-related-to-them/)
+- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
+- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
+- [why can't you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
+- [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
+- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
+- [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
 - [7 Interesting Facts about Perfumes ...](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
 - [8 Things You Always Wanted to Know about Perfume ....](https://allwomenstalk.com/8-things-you-always-wanted-to-know-about-perfume/)
 

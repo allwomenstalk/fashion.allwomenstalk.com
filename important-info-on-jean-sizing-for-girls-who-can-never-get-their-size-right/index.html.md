@@ -1,12 +1,12 @@
 ---
-title: "Important Info on Jean Sizing for Girls Who Can Never Get Their Size Right ..."
+title: "Important Info on Jean Sizing for Girls Who Can Never Get Their Size Right 🤔 ..."
 description: "Old Navy; The Loft; Free People; J. Crew; The Gap; More ..."
 url: "https://fashion.allwomenstalk.com/important-info-on-jean-sizing-for-girls-who-can-never-get-their-size-right/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Important Info on Jean Sizing for Girls Who Can Never Get Their Size Right  ...
+# Important Info on Jean Sizing for Girls Who Can Never Get Their Size Right 🤔 ...
 
 Why am I a size 4 in some jeans, and a 6 in others? Why can't jeans sizing for women be the same across brands, like it is for men? It's probably because clothing brands for women do something horrible, called "vanity sizing," to make us feel better about ourselves while actually making our lives (esp. shopping for jeans) so much more difficult than it needs to be. So the Washington Post did us all a favor, and went to some of our fave retailers to see what a size 8 means to each brand. Here's what they found.
 
@@ -62,18 +62,18 @@ So... what's your size gripe, or have you found a range of brands that fit you p
 
 ## Related Posts
 
-- [Beyond Awesome Habits to Develop for Girls Who Wan...](https://inspiration.allwomenstalk.com/beyond-awesome-habits-to-develop-for-girls-who-want-to-be-determined-go-getters/)
-- [Interesting Thoughts for Girls Who Want to See Thi...](https://inspiration.allwomenstalk.com/interesting-thoughts-for-girls-who-want-to-see-things-from-a-different-perspective/)
-- [how to live confidently](https://inspiration.allwomenstalk.com/steps-to-take-for-girls-who-want-to-live-life-more-confidently/)
-- [Creative Ways to Express Your Feelings for Girls W...](https://inspiration.allwomenstalk.com/creative-ways-to-express-your-feelings-for-girls-who-cant-find-an-outlet/)
-- [7 Most Effective Moves All Fit Girls Have Mastered...](https://fitness.allwomenstalk.com/most-effective-moves-all-fit-girls-have-mastered/)
-- [What to do when Youre Young and Need Help to Proce...](https://love.allwomenstalk.com/what-to-do-when-youre-young-and-need-help-to-process-your-girl-on-girl-crush/)
-- [how to quit shopping](https://money.allwomenstalk.com/shopping-mistakes-all-women-over-need-to-quit/)
 - [new year resolutions for women](https://inspiration.allwomenstalk.com/the-most-achievable-new-years-resolutions-for-lazy-girls/)
 - [The Best Nutrients for Girls Who Are Super Stresse...](https://diet.allwomenstalk.com/the-best-nutrients-for-girls-who-are-super-stressed-out/)
+- [What to do when You're Young and Need Help to Proc...](https://love.allwomenstalk.com/what-to-do-when-youre-young-and-need-help-to-process-your-girl-on-girl-crush/)
+- [Beyond Awesome Habits to Develop for Girls Who Wan...](https://inspiration.allwomenstalk.com/beyond-awesome-habits-to-develop-for-girls-who-want-to-be-determined-go-getters/)
 - [wonderful ways](https://beauty.allwomenstalk.com/wonderful-ways-for-all-girls-to-fall-in-love-with-their-bodies/)
+- [Interesting Thoughts for Girls Who Want to See Thi...](https://inspiration.allwomenstalk.com/interesting-thoughts-for-girls-who-want-to-see-things-from-a-different-perspective/)
+- [Creative Ways to Express Your Feelings for Girls W...](https://inspiration.allwomenstalk.com/creative-ways-to-express-your-feelings-for-girls-who-cant-find-an-outlet/)
+- [how to quit shopping](https://money.allwomenstalk.com/shopping-mistakes-all-women-over-need-to-quit/)
+- [7 Most Effective Moves All Fit Girls Have Mastered...](https://fitness.allwomenstalk.com/most-effective-moves-all-fit-girls-have-mastered/)
+- [how to live confidently](https://inspiration.allwomenstalk.com/steps-to-take-for-girls-who-want-to-live-life-more-confidently/)
 - [Must Know Tips How to Wear Crop Tops No Matter Wha...](https://fashion.allwomenstalk.com/tips-on-how-to-wear-crop-tops-no-matter-what-your-body-shape/)
-- [For Tall Girls the Struggle is Real ...](https://inspiration.allwomenstalk.com/struggles-of-being-a-tall-girl/)
+- [For Tall Girls, the Struggle is Real ...](https://inspiration.allwomenstalk.com/struggles-of-being-a-tall-girl/)
 
 ## Site Information
 

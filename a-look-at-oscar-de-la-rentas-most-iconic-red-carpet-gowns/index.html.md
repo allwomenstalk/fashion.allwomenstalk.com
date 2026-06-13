@@ -1,12 +1,12 @@
 ---
-title: "A Look at Oscar De La Rentas Most Iconic Red Carpet Gowns ..."
+title: "A Look at Oscar De La Renta's Most Iconic Red Carpet Gowns ..."
 description: "Oprah Winfrey; Amy Adams; Sarah Jessica Parker; Cameron Diaz; Emma Watson; More ..."
 url: "https://fashion.allwomenstalk.com/a-look-at-oscar-de-la-rentas-most-iconic-red-carpet-gowns/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# A Look at Oscar De La Rentas Most Iconic Red Carpet Gowns ...
+# A Look at Oscar De La Renta's Most Iconic Red Carpet Gowns ...
 
 With the legendary designer's recent death, we thought we'd share his most iconic red carpet gowns. Celebrities have all started to pay tribute to the late designer by posting photos of themselves in his creations. Taylor Swift led the tribute with a sweet Instagram post, calling it an honor to have known him and to have been able to wear his pieces. He's dressed every first lady since Jacqueline Kennedy and all of Hollywood's leading ladies. Here's a look at (some of) his most iconic gowns:
 
@@ -74,15 +74,15 @@ Of the list, which was your favorite?
 
 ## Related Posts
 
-- [2015 oscar best movie nominees](https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/)
-- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
 - [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
-- [alfonso ribeiro dwts winner](https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/)
-- [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
-- [emma watson white jumpsuit](https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/)
-- [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
-- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
 - [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
+- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
+- [alfonso ribeiro dwts winner](https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/)
+- [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
+- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
+- [emma watson white jumpsuit](https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/)
+- [2015 oscar best movie nominees](https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/)
+- [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
 - [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
 - [5 Colorful Bridesmaid Looks from the Oscars ...](https://wedding.allwomenstalk.com/5-colorful-bridesmaid-inspirations-from-the-oscars/)
 - [8 Iconic Red Carpet Celebrity Looks ...](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)

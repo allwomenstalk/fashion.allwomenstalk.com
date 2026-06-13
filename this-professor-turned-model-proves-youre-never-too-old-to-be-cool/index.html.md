@@ -1,12 +1,12 @@
 ---
-title: "This Professor Turned Model Proves Youre Never Too Old to Be Cool ..."
+title: "This Professor ‍ Turned Model Proves You're Never Too Old to Be Cool ..."
 description: "Meet 63-year-old Lyn Slater, Who Has, until Recently, Been an Ordinary Professor at Fordham University; One Day She Went to Meet a Friend for Lunch outside the Lincoln Center during New York Fashion Week; Foreign Journalists Suddenly Surrounded Her, Mistaking Her for a Fashion Icon and Attracting Spectators; It Was a Defining Moment That Turned Lyn into an Accidental Icon; Her Blog of the Same Name, Inspired by the Experience, Soon Began Making International Waves; More ..."
 url: "https://fashion.allwomenstalk.com/this-professor-turned-model-proves-youre-never-too-old-to-be-cool/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# This Professor  Turned Model Proves Youre Never Too Old to Be Cool ...
+# This Professor ‍ Turned Model Proves You're Never Too Old to Be Cool ...
 
 We all know the story of how 14-year-old Kate Moss was discovered at JFK Airport by Sarah Doukas, founder of Storm Model Management - yes? Look how that turned out. Well, you don't have to be a fresh-faced teen to be recognized as model material. Lyn Slater was meeting a friend for lunch in New York during Fashion Week and the press mistook her for a fashion icon. She drew a crowd of admiring photographers and spectators and suddenly, in the flash of a camera bulb, everything changed. Lyn Slater was a 63-year-old professor at Fordham University professor but the world's premier modeling agency, Elite London, recognized her potential and now she is an haute couture model.
 
@@ -72,17 +72,17 @@ We say yay to kicking age discrimination to the curb. Here's proof that age is n
 
 ## Related Posts
 
-- [17 Must-Know Facts about Celine Fashion House](https://fashion.allwomenstalk.com/celine-fashion-house-facts/)
-- [15 Iconic Fashion Designers Who Redefined the Fash...](https://fashion.allwomenstalk.com/iconic-fashion-designers-who-shaped-industry/)
-- [new york aesthetics](https://allwomenstalk.com/nyc-aesthetic-how-new-yorkers-maintain-appearance/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/misconceptions-about-fashion/)
-- [The Last Empress of Fashion ...](https://bilbr.com/the-last-empress-of-fashion/)
-- [Wannalooks - Your One-Stop Destination for Inspira...](https://allwomenstalk.com/wannalooks-inspiration-trends-fashion/)
-- [90s Fashion We Love so Much Its Coming Back ...](https://fashion.allwomenstalk.com/90s-fashion-we-love-so-much-its-coming-back/)
+- [90's Fashion We Love so Much It's Coming Back ...](https://fashion.allwomenstalk.com/90s-fashion-we-love-so-much-its-coming-back/)
+- [Why You *MUST* Champion Sustainable Fashion ...](https://fashion.allwomenstalk.com/why-you-must-champion-sustainable-fashion/)
 - [Top Fashion Brands Worldwide](https://fashion.allwomenstalk.com/top-fashion-brands-worldwide/)
+- [15 Iconic Fashion Designers Who Redefined the Fash...](https://fashion.allwomenstalk.com/iconic-fashion-designers-who-shaped-industry/)
 - [Why We Have a Passion for Guy Fashion ...](https://fashion.allwomenstalk.com/why-we-have-a-passion-for-guy-fashion/)
-- [Why You MUST Champion Sustainable Fashion ...](https://fashion.allwomenstalk.com/why-you-must-champion-sustainable-fashion/)
-- [Will Models Ever Be IT AgainWill Models Ever Be .....](https://allwomenstalk.com/will-models-ever-be-it-againwill-models-ever-be/)
+- [The Last Empress of Fashion ...](https://bilbr.com/the-last-empress-of-fashion/)
+- [new york aesthetics](https://allwomenstalk.com/nyc-aesthetic-how-new-yorkers-maintain-appearance/)
+- [Wannalooks - Your One-Stop Destination for Inspira...](https://allwomenstalk.com/wannalooks-inspiration-trends-fashion/)
+- [17 Must-Know Facts about Celine Fashion House …](https://fashion.allwomenstalk.com/celine-fashion-house-facts/)
+- [Will Models Ever Be "IT" Again?Will Models Ever Be...](https://allwomenstalk.com/will-models-ever-be-it-againwill-models-ever-be/)
 - [A Man Who Brings out Your Best](https://allwomenstalk.com/a-man-who-brings-out-your-best/)
 
 ## Site Information

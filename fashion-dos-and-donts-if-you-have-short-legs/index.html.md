@@ -1,12 +1,12 @@
 ---
-title: "7 Fashion Dos and Donts if You Have Short Legs ..."
+title: "7 Fashion Dos and Don'ts if You Have Short Legs ..."
 description: "Keep Colors Simple; Higher Hemline; Avoid Ankle Straps; Heels; High Waist; More ..."
 url: "https://fashion.allwomenstalk.com/fashion-dos-and-donts-if-you-have-short-legs/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Fashion Dos and Donts if You Have Short Legs ...
+# 7 Fashion Dos and Don'ts if You Have Short Legs ...
 
 What are the fashion [dos and don'ts](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/) if you have short legs? You'll need to know the right way to make the most of your legs and avoid garments that make them look even shorter. Some styles aren't quite as flattering if you have short legs, and you need to know how to fake it. Here are the fashion dos and don'ts if you have short legs …
 
@@ -56,16 +56,16 @@ Armed with these tips you can wear the most flattering outfits and help your leg
 
 ## Related Posts
 
+- [j jill outlet](https://fashion.allwomenstalk.com/best-ever-fashion-tips-for-elderly-women/)
 - [wear ever jewelry](https://jewelry.allwomenstalk.com/tips-for-wearing-jewelry-to-the-beach/)
+- [what is colorblock](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-colorblock-trend/)
 - [boyfriend jeans with top](https://fashion.allwomenstalk.com/ways-to-wear-boyfriend-jeans-in-a-totally-stylish-manner/)
 - [oversized denim jacket outfit ideas](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-a-denim-jacket/)
-- [j jill outlet](https://fashion.allwomenstalk.com/best-ever-fashion-tips-for-elderly-women/)
 - [what to wear under tulle skirt](https://streetstyle.allwomenstalk.com/street-style-outfits-with-tulle-skirts-to-recreate/)
+- [cute ways to wear bandanas](https://streetstyle.allwomenstalk.com/street-style-outfits-with-bandanas-to-recreate/)
 - [oxfords outfits](https://streetstyle.allwomenstalk.com/street-style-outfits-with-oxfords-to-recreate/)
 - [chic looking](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-business-chic/)
 - [seven dress street](https://streetstyle.allwomenstalk.com/street-style-ways-to-dress-like-blair-waldorf/)
-- [cute ways to wear bandanas](https://streetstyle.allwomenstalk.com/street-style-outfits-with-bandanas-to-recreate/)
-- [what is colorblock](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-colorblock-trend/)
 - [7 Must Know Fashion Tips ...](https://allwomenstalk.com/7-must-know-fashion-tips/)
 - [7 Fashion Faux-Pas to Avoid ...](https://allwomenstalk.com/7-fashion-faux-pas-to-avoid/)
 

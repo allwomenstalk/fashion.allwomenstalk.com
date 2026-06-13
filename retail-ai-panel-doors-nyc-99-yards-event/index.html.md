@@ -1,12 +1,12 @@
 ---
-title: "Retail 3.0 - A Night Where Fashion Technology and Storytelling Merged to Redefine the Future of Retail"
+title: "Retail 3.0 - A Night Where Fashion, Technology, and Storytelling Merged to Redefine the Future of Retail …"
 description: "Alise Trautmane-Uzuner: Designing a Cultural Space for the Future of Fashion; Tony Henry and the Vision of 99 YARDS; The Panel: Innovation With a Human Pulse; Spotlight: Left Knee Patch – A Beautiful Rewear Story; A Glimpse Into What’s Next; More ..."
 url: "https://fashion.allwomenstalk.com/retail-ai-panel-doors-nyc-99-yards-event/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Retail 3.0 \- A Night Where Fashion Technology and Storytelling Merged to Redefine the Future of Retail
+# Retail 3.0 \- A Night Where Fashion, Technology, and Storytelling Merged to Redefine the Future of Retail …
 
 **On July 22, in the heart of SoHo, the DOORS NYC concept store transformed into a hub of creative discourse and innovation.** In collaboration with **fashion-tech platform 99 YARDS**, the event titled **Retail 3.0: Experience Is The Product unfolded as more than a panel** – it was a cultural moment that illuminated how AI, immersive storytelling, and community-centered design are quietly **rewriting the future of how we shop.**
 

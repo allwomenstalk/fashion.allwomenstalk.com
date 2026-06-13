@@ -1,12 +1,12 @@
 ---
-title: "5 Flip-Flop Brands to Know for SpringSummer 2012 ..."
+title: "5 Flip-Flop Brands to Know for Spring/Summer 2012 ..."
 description: "Havaianas...; IPANEMA...; Tkees...; PilyQ...; Melissa Shoes...; More ..."
 url: "https://fashion.allwomenstalk.com/flip-flop-brands-to-know-for-springsummer/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 5 Flip\-Flop Brands to Know for SpringSummer 2012 ...
+# 5 Flip\-Flop Brands to Know for Spring/Summer 2012 ...
 
 Some of us only get to wear **flip-flops** for the summer so we're waiting for the winter chill to pass so we can search for the hottest new trends. But others, who make me jealous, get to wear their sandals and flip-flops all year long! Whether you get to wear them all year round or you are waiting till the sun comes out again, Susan from [InstyleSwimwear](https://goo.gl/7aBNp8)is guest blogging with us today to share her picks for **5 Flip-Flop Brands to Know for Spring/Summer 2012**...
 You Can Never Have Too Many Flip-Flops...
@@ -49,16 +49,16 @@ Susan Bodack is the Director of Social Media Marketing at [InStyleSwimwear.com](
 
 ## Related Posts
 
-- [5 Hot Trends for Spring amp Summer 2012 ...](https://fashion.allwomenstalk.com/hot-trends-for-spring-summer/)
-- [9 New Fashion Trends to Try ...](https://fashion.allwomenstalk.com/new-fashion-trends-to-try/)
-- [Top 7 Winter 2011 Fashion Essentials ...](https://fashion.allwomenstalk.com/top-winter-fashion-essentials/)
-- [8 Fashion Colors for Fall 2011 ...](https://fashion.allwomenstalk.com/fashion-colors-for-fall/)
-- [7 Latest Fashion Trends to Try out ...](https://fashion.allwomenstalk.com/latest-fashion-trends-to-try-out/)
-- [5 Menswear Trends for Fall from StylePilot.com ...](https://fashion.allwomenstalk.com/menswear-trends-for-fall-from-stylepilot-com/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 - [autumn fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-fall/)
 - [fashion trends guys](https://fashion.allwomenstalk.com/fashion-trends-guys-hate/)
 - [2012 bikini](https://fashion.allwomenstalk.com/hot-trends-in-luxury-swimwear-for/)
+- [5 Menswear Trends for Fall from StylePilot.com ...](https://fashion.allwomenstalk.com/menswear-trends-for-fall-from-stylepilot-com/)
+- [5 Hot Trends for Spring & Summer 2012 ...](https://fashion.allwomenstalk.com/hot-trends-for-spring-summer/)
+- [7 Latest Fashion Trends to Try out ...](https://fashion.allwomenstalk.com/latest-fashion-trends-to-try-out/)
+- [8 Fashion Colors for Fall 2011 ...](https://fashion.allwomenstalk.com/fashion-colors-for-fall/)
+- [9 New Fashion Trends to Try ...](https://fashion.allwomenstalk.com/new-fashion-trends-to-try/)
+- [Top 7 Winter 2011 Fashion Essentials ...](https://fashion.allwomenstalk.com/top-winter-fashion-essentials/)
 - [9 Cute Flip-Flops ...](https://shoes.allwomenstalk.com/cute-flip-flops/)
 - [5 Stylish Pastel Pierre Hardy Sandals ...](https://shoes.allwomenstalk.com/stylish-pastel-pierre-hardy-sandals/)
 

@@ -3,7 +3,7 @@ title: "7 Things to Wear While Rushing a Sorority ..."
 description: "Vince Camuto ‘Evora’ Sandal; ‘Calhoun’ Cotton Lace Fit & Flare Dress; Jack Rogers Thong Sandal; MARC by MARC JACOBS ‘Classic Q – Karlie’ Crossbody Flap Bag; Floral Lace Skater Dress; More ..."
 url: "https://fashion.allwomenstalk.com/things-to-wear-while-rushing-a-sorority/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Things to Wear While Rushing a Sorority ...
@@ -56,15 +56,15 @@ Sorority sisters put so much effort into dressing nicely for rush, so you should
 
 ## Related Posts
 
+- [why does zooey deschanel always wear dresses](https://fashion.allwomenstalk.com/articles-of-clothing-that-are-inspired-by-zooey-deschanel/)
+- [appliqud](https://fashion.allwomenstalk.com/stylish-appliqued-clothes-to-wear-with-your-everyday-outfits/)
+- [reason not to worry](https://fashion.allwomenstalk.com/reasons-not-to-worry-about-fashion/)
+- [gorgeous tops](https://fashion.allwomenstalk.com/gorgeous-tops-for-spring-that-anyone-will-love/)
+- [fruit print shorts](https://fashion.allwomenstalk.com/fruit-inspired-fashions-youll-want-to-serve-up-with-your-outfits/)
 - [sweater over button up](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-a-collared-shirt-this-spring/)
 - [camo day outfit ideas](https://streetstyle.allwomenstalk.com/awesome-street-style-camo-outfits-to-recreate/)
-- [pregnancy clothes must haves](https://fashion.allwomenstalk.com/must-have-basic-clothing-pieces-for-pregnant-women/)
-- [reason not to worry](https://fashion.allwomenstalk.com/reasons-not-to-worry-about-fashion/)
-- [fruit print shorts](https://fashion.allwomenstalk.com/fruit-inspired-fashions-youll-want-to-serve-up-with-your-outfits/)
-- [gorgeous tops](https://fashion.allwomenstalk.com/gorgeous-tops-for-spring-that-anyone-will-love/)
-- [why does zooey deschanel always wear dresses](https://fashion.allwomenstalk.com/articles-of-clothing-that-are-inspired-by-zooey-deschanel/)
 - [teenage wardrobe](https://fashion.allwomenstalk.com/clothing-items-every-teen-should-have-in-her-closet/)
-- [appliqud](https://fashion.allwomenstalk.com/stylish-appliqued-clothes-to-wear-with-your-everyday-outfits/)
+- [pregnancy clothes must haves](https://fashion.allwomenstalk.com/must-have-basic-clothing-pieces-for-pregnant-women/)
 - [free people accessories](https://fashion.allwomenstalk.com/free-people-fashions-and-accessories-for-spring/)
 - [7 Tips on Dressing up for a Holiday Party ...](https://fashion.allwomenstalk.com/tips-on-dressing-up-for-a-holiday-party/)
 - [7 Ways to Wear Frills ...](https://allwomenstalk.com/7-ways-to-wear-frills/)

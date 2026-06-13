@@ -1,12 +1,12 @@
 ---
-title: "Gettting to Know Atutudes: Tutus for Fashionista Little Girls ..."
+title: "Gettting to Know Atutudes: Tutu's for Fashionista Little Girls ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://fashion.allwomenstalk.com/gettting-to-know-atutudes-tutus-for-fashionista-little-girls/"
 category: "fashion"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Gettting to Know Atutudes: Tutus for Fashionista Little Girls ...
+# Gettting to Know Atutudes: Tutu's for Fashionista Little Girls ...
 
 Last week I stumbled upon this little Audrey Hepburn fashionista look alike on [Pinterest](https://www.pinterest.com/allwomenstalk/)and just had to share her adorable picture with our fans on [Facebook](https://www.facebook.com/#!/Allwomenstalk). Turns out this stylized photo came from the makes of the beautiful tutu, [Atutudes](http://www.etsy.com?ref=allwomenstalk.com), and photographer [Ashley Concillio](https://www.facebook.com/ashleyconcilio.photography#!/ashleyconcilio.photography?sk=wall). I was in love and today we're so excited to share more about [Atutudes](http://www.etsy.com?ref=allwomenstalk.com)lovely little tutus and the woman, Kristal Lee, behind them...
 Atutudes: Tutus for your Little Fashionista...
@@ -30,18 +30,18 @@ Stalkers next time you are having a birthday party for your little girl, dressin
 
 ## Related Posts
 
-- [glasses celebrities](https://fashion.allwomenstalk.com/outrageously-stylish-oversized-sunglasses-celebrities-would-wear/)
-- [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
-- [dress like a celebrity day](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
-- [fashionista job](https://fashion.allwomenstalk.com/coolest-careers-in-fashion/)
-- [5 Top Picks from Style Pilot for the Alternative G...](https://fashion.allwomenstalk.com/top-picks-from-style-pilot-for-the-alternative-guy/)
 - [celeb style guide](https://fashion.allwomenstalk.com/celeb-looks-to-copy-style-for-cheap-statement-pieces-and-more/)
-- [most influential designers](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
+- [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
+- [select the correct answer. identify the place show...](https://fashion.allwomenstalk.com/screen-sirens-to-take-wardrobe-inspiration-from/)
+- [dress like a celebrity day](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
+- [5 Top Picks from Style Pilot for the Alternative G...](https://fashion.allwomenstalk.com/top-picks-from-style-pilot-for-the-alternative-guy/)
 - [best looking models of all time](https://fashion.allwomenstalk.com/incredibly-gorgeous-top-fashion-models-of-all-time/)
 - [best magazine for fashion](https://fashion.allwomenstalk.com/top-fashion-magazines-you-ought-to-read/)
-- [select the correct answer. identify the place show...](https://fashion.allwomenstalk.com/screen-sirens-to-take-wardrobe-inspiration-from/)
+- [most influential designers](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
+- [glasses celebrities](https://fashion.allwomenstalk.com/outrageously-stylish-oversized-sunglasses-celebrities-would-wear/)
+- [fashionista job](https://fashion.allwomenstalk.com/coolest-careers-in-fashion/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
-- [Fashions Tall Tale ...](https://allwomenstalk.com/fashions-tall-tale/)
+- [Fashion's Tall Tale ...](https://allwomenstalk.com/fashions-tall-tale/)
 
 ## Site Information
 
