@@ -3,7 +3,7 @@ title: "These Controversial Fashion Magazine Covers Will Make You Gasp!"
 description: "Vogue Hommes, Fall 2012; Purple, Spring 2010; Vogue, April 2014; Vogue Italia, September 2011; Vogue Hommes Japan, September 2011; More ..."
 url: "https://fashion.allwomenstalk.com/these-controversial-fashion-magazine-covers-will-make-you-gasp/"
 category: "fashion"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # These Controversial Fashion Magazine Covers Will Make You Gasp!
@@ -92,15 +92,15 @@ So, did any of these controversial fashion magazine covers irk you or did you th
 
 ## Related Posts
 
-- [lily collins audrey hepburn photoshoot](https://fashion.allwomenstalk.com/times-you-wanted-to-steal-lily-collinss-style/)
-- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
-- [jennifer lawrence style](https://celebs.allwomenstalk.com/i-want-her-style-jennifer-lawrence-looks-for-fashion-inspo/)
-- [kim kardashian classy](https://fashion.allwomenstalk.com/times-we-loved-kim-kardashian-wests-evolving-style/)
-- [rachel talbott](https://fashion.allwomenstalk.com/vloggers-with-gorgeous-fashion-sense/)
-- [weird runway outfits](https://fashion.allwomenstalk.com/wait-till-you-see-these-bizarre-runway-pictures/)
-- [coco chanel jewelry quotes](https://fashion.allwomenstalk.com/pieces-of-fashion-advice-from-your-favorite-designers/)
 - [cate blanchett street style](https://celebs.allwomenstalk.com/all-hail-the-style-queen-lets-study-cate-blanchetts-lookbook/)
+- [rachel talbott](https://fashion.allwomenstalk.com/vloggers-with-gorgeous-fashion-sense/)
+- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
 - [fashion magazine covers](https://fashion.allwomenstalk.com/ring-out-the-old-you-have-to-see-these-vintage-fashion-magazine-covers/)
+- [kim kardashian classy](https://fashion.allwomenstalk.com/times-we-loved-kim-kardashian-wests-evolving-style/)
+- [lily collins audrey hepburn photoshoot](https://fashion.allwomenstalk.com/times-you-wanted-to-steal-lily-collinss-style/)
+- [coco chanel jewelry quotes](https://fashion.allwomenstalk.com/pieces-of-fashion-advice-from-your-favorite-designers/)
+- [jennifer lawrence style](https://celebs.allwomenstalk.com/i-want-her-style-jennifer-lawrence-looks-for-fashion-inspo/)
+- [weird runway outfits](https://fashion.allwomenstalk.com/wait-till-you-see-these-bizarre-runway-pictures/)
 - [taylor swift easy outfits](https://celebs.allwomenstalk.com/times-we-wanted-to-copy-taylor-swifts-outfits/)
 - [Fashion News Weekly round up!](https://allwomenstalk.com/fashion-news-weekly-round-up-bag-bliss-8/)
 - [Fashion News Weekly round up!](https://allwomenstalk.com/fashion-news-weekly-round-up-bag-bliss-9/)

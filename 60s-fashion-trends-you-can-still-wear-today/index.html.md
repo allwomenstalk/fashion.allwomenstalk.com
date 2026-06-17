@@ -3,7 +3,7 @@ title: "7 '60s Fashion Trends You Can Still Wear Today ..."
 description: "Peter Pan Collars; Pelmets; Box Jackets; Bell Bottoms; False Eyelashes; More ..."
 url: "https://fashion.allwomenstalk.com/60s-fashion-trends-you-can-still-wear-today/"
 category: "fashion"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 '60s Fashion Trends You Can Still Wear Today ...
@@ -56,16 +56,16 @@ The 1960s era saw fashion become less stiff and more free. There are still eleme
 
 ## Related Posts
 
-- [padlock necklace trend](https://jewelry.allwomenstalk.com/spring-jewelry-trends-you-can-rock/)
-- [we're of course trend](https://fashion.allwomenstalk.com/recurring-fashion-trends-from-my-childhood-and-yours/)
 - [gama naif](https://makeup.allwomenstalk.com/big-makeup-trends-for-spring/)
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
+- [we're of course trend](https://fashion.allwomenstalk.com/recurring-fashion-trends-from-my-childhood-and-yours/)
 - [overall trends](https://fashion.allwomenstalk.com/overall-trends-that-you-can-rock-this-year/)
-- [seventies fashion trends](https://fashion.allwomenstalk.com/fabulous-fashion-trends-from-the-70s-that-you-can-rock-today/)
-- [english shoe designers](https://shoes.allwomenstalk.com/british-shoe-designers-that-are-on-trend-in/)
 - [contrast in fashion](https://fashion.allwomenstalk.com/unexpected-fashion-week-trends-and-how-to-wear-them/)
-- [lfw trends](https://fashion.allwomenstalk.com/lfw-trends-that-you-should-embrace-now/)
+- [padlock necklace trend](https://jewelry.allwomenstalk.com/spring-jewelry-trends-you-can-rock/)
+- [seventies fashion trends](https://fashion.allwomenstalk.com/fabulous-fashion-trends-from-the-70s-that-you-can-rock-today/)
 - [spring 2014 fashion trends](https://fashion.allwomenstalk.com/spring-trends-you-can-start-wearing-now/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
+- [lfw trends](https://fashion.allwomenstalk.com/lfw-trends-that-you-should-embrace-now/)
+- [english shoe designers](https://shoes.allwomenstalk.com/british-shoe-designers-that-are-on-trend-in/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 - [10 Autumn Trends You Can Wear Now ...](https://allwomenstalk.com/10-autumn-trends-you-can-wear-now/)
 

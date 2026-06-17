@@ -3,7 +3,7 @@ title: "Nicolas Ghesquière and Hoyeon Lead a Bold New Era at Louis Vuitton ..."
 description: "The Art of Structure and Softness; Hoyeon and the Power Suit Reimagined; Effortless Versatility: Soft Neutrals and Statement Bags; Iconic Handbags, Artfully Reinvented; Runway Moments: Movement and Mood; More ..."
 url: "https://fashion.allwomenstalk.com/nicolas-ghesquiere-and-hoyeon-lead-a-bold-new-era-at-louis-vuitton/"
 category: "fashion"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Nicolas Ghesquière and Hoyeon Lead a Bold New Era at Louis Vuitton ...

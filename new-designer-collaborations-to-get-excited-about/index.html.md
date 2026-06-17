@@ -3,7 +3,7 @@ title: "7 New Designer Collaborations to Get Excited about ..."
 description: "Marni for H&M; Mary Katrantzou for Topshop; Jason Wu for Target; Manolo Blahnik for J.Crew; Christian Siriano for Payless Fall 2012; More ..."
 url: "https://fashion.allwomenstalk.com/new-designer-collaborations-to-get-excited-about/"
 category: "fashion"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 New Designer Collaborations to Get Excited about ...
@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21985888)
 
 ## Related Posts
 
-- [7 of Kate Middleton's Best Looks as the Royal Baby...](https://fashion.allwomenstalk.com/of-kate-middletons-best-looks-as-the-royal-baby-is-on-its-way/)
-- [7 Celebrities with a Questionable Yet Cool Fashion...](https://fashion.allwomenstalk.com/celebrities-with-a-questionable-yet-cool-fashion-sense/)
-- [7 Fashion Week Looks You'll Love ...](https://fashion.allwomenstalk.com/fashion-week-looks-youll-love/)
 - [7 Surprises from New York Fashion Week ...](https://fashion.allwomenstalk.com/surprises-from-new-york-fashion-week/)
 - [7 Life Lessons We Learnt from Project Runway ...](https://lifestyle.allwomenstalk.com/life-lessons-we-learnt-from-project-runway/)
-- [8 Top Luxury Fashion Brands ...](https://fashion.allwomenstalk.com/top-luxury-fashion-brands/)
-- [7 Books to Take Fashion Inspiration from ...](https://fashion.allwomenstalk.com/books-to-take-fashion-inspiration-from/)
-- [8 Great Gatsby Inspired Fashions ...](https://fashion.allwomenstalk.com/great-gatsby-inspired-fashions/)
-- [7 Things to Love about Fashion Today ...](https://fashion.allwomenstalk.com/things-to-love-about-fashion-today/)
 - [7 Fab Trendsetting Television Shows Every Fashioni...](https://fashion.allwomenstalk.com/fab-trendsetting-television-shows-every-fashionista-will-love/)
+- [7 of Kate Middleton's Best Looks as the Royal Baby...](https://fashion.allwomenstalk.com/of-kate-middletons-best-looks-as-the-royal-baby-is-on-its-way/)
+- [7 Fashion Week Looks You'll Love ...](https://fashion.allwomenstalk.com/fashion-week-looks-youll-love/)
+- [8 Top Luxury Fashion Brands ...](https://fashion.allwomenstalk.com/top-luxury-fashion-brands/)
+- [7 Celebrities with a Questionable Yet Cool Fashion...](https://fashion.allwomenstalk.com/celebrities-with-a-questionable-yet-cool-fashion-sense/)
+- [8 Great Gatsby Inspired Fashions ...](https://fashion.allwomenstalk.com/great-gatsby-inspired-fashions/)
+- [7 Books to Take Fashion Inspiration from ...](https://fashion.allwomenstalk.com/books-to-take-fashion-inspiration-from/)
+- [7 Things to Love about Fashion Today ...](https://fashion.allwomenstalk.com/things-to-love-about-fashion-today/)
 - [7 Classic Designer Shoes to Invest into ...](https://shoes.allwomenstalk.com/classic-designer-shoes-to-invest-into/)
 - [7 Successful Guest Designer Collaborations for H&M...](https://fashion.allwomenstalk.com/successful-guest-designer-collaborations-for-hm/)
 

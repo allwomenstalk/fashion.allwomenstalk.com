@@ -3,7 +3,7 @@ title: "9 Fashion Forward Looks from Marion Cotillard ..."
 description: "2009 Public Enemies London Movie Premiere; 2012 Dark Knight Rises London Movie Premiere; Christian Dior Haute Couture Paris Fashion Week 2012; 2013 Critics' Choice Awards; 2013 Maud Fontenoy Foundation Annual Gala; More ..."
 url: "https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/"
 category: "fashion"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 9 Fashion Forward Looks from Marion Cotillard ...
@@ -68,16 +68,16 @@ This French beauty's fashion sense has landed her on the top of copious best dre
 
 ## Related Posts
 
-- [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
-- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
-- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
-- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
-- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
-- [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
-- [preppy actresses](https://fashion.allwomenstalk.com/most-fabulous-fashion-icons-for-prepsters/)
-- [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
-- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
 - [stylish black and white outfits](https://streetstyle.allwomenstalk.com/chic-black-and-white-street-style-looks/)
+- [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
+- [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
+- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
+- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
+- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
+- [preppy actresses](https://fashion.allwomenstalk.com/most-fabulous-fashion-icons-for-prepsters/)
+- [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
+- [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
+- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
 - [9 Fall Fashion Trends of 2011 ...](https://fashion.allwomenstalk.com/fall-fashion-trends-of/)
 - [14 Fabulous Looks from Cannes ...](https://allwomenstalk.com/14-fabulous-looks-from-cannes/)
 

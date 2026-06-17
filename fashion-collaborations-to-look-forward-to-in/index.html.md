@@ -3,7 +3,7 @@ title: "7 Fashion Collaborations to Look Forward to in 2014 ..."
 description: "Kate Moss for Topshop; Peter Pilotto for Target; Vivienne Westwood for ASOS; Valentino for Havaianas; Sophia Webster for J.Crew; More ..."
 url: "https://fashion.allwomenstalk.com/fashion-collaborations-to-look-forward-to-in/"
 category: "fashion"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Fashion Collaborations to Look Forward to in 2014 ...
@@ -42,16 +42,16 @@ These are just some fashion collaborations to keep an eye out for in 2014. Are y
 
 ## Related Posts
 
-- [9 Fashion Essentials for Spring 2014 ...](https://fashion.allwomenstalk.com/fashion-essentials-for-spring/)
 - [7 Ways to Channel the Opulence Trend This Spring ....](https://fashion.allwomenstalk.com/ways-to-channel-the-opulence-trend-this-spring/)
-- [7 Health Trends to Get on Board with This Year ...](https://vityle.com/health-trends-to-get-on-board-with-this-year/)
-- [spring 2014 fashion trends](https://fashion.allwomenstalk.com/wardrobe-must-haves-for-spring/)
 - [7 New Trends from NY Fashion Week to Sport Now ...](https://fashion.allwomenstalk.com/new-trends-from-ny-fashion-week-to-sport-now/)
-- [7 New Beauty Trends for Spring 2014 ...](https://beauty.allwomenstalk.com/new-beauty-trends-for-spring/)
-- [7 Trends That Are over and out This Year ...](https://fashion.allwomenstalk.com/trends-that-are-over-and-out-this-year/)
-- [fashion trends spring 2014](https://fashion.allwomenstalk.com/hot-fashion-trends-for-spring/)
 - [kristin cavalri](https://shoes.allwomenstalk.com/spring-shoe-trends-to-fall-in-love-with/)
+- [9 Fashion Essentials for Spring 2014 ...](https://fashion.allwomenstalk.com/fashion-essentials-for-spring/)
+- [7 Health Trends to Get on Board with This Year ...](https://vityle.com/health-trends-to-get-on-board-with-this-year/)
+- [7 Trends That Are over and out This Year ...](https://fashion.allwomenstalk.com/trends-that-are-over-and-out-this-year/)
+- [spring 2014 fashion trends](https://fashion.allwomenstalk.com/wardrobe-must-haves-for-spring/)
+- [fashion trends spring 2014](https://fashion.allwomenstalk.com/hot-fashion-trends-for-spring/)
 - [9 Fashion Week Trends to Take Notice of Now ...](https://fashion.allwomenstalk.com/fashion-week-trends-to-take-notice-of-now/)
+- [7 New Beauty Trends for Spring 2014 ...](https://beauty.allwomenstalk.com/new-beauty-trends-for-spring/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [7 Food Trends That Will Feature Big in 2012 ...](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
 

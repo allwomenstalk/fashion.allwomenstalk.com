@@ -3,7 +3,7 @@ title: "Maeve by Anthropologie Delivers the Cutest Mini Moment Ever..."
 description: "Plush, Pink, and Perfect: The Cozy Side of Mini; Flirty in Satin: The Party Dress You Didn’t Know You Needed; Satin & Lace: A Nod to ’90s Girlhood Dreams; Accessories: Cute Meets Chic; The Statement Mini: Edgy, Bold, and Pink; More ..."
 url: "https://fashion.allwomenstalk.com/maeve-by-anthropologie-mini-moment/"
 category: "fashion"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Maeve by Anthropologie Delivers the Cutest Mini Moment Ever...
