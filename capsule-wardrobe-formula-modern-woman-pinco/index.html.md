@@ -22,7 +22,17 @@ A capsule wardrobe is basically a foundation: a small set of clothes that all wo
 
 Why bother shrinking your closet? Because the trade-offs are worth it.
 
-- You save time. Mornings stop being a mini crisis. A couple of pieces, thrown together, and you’re out the door. * You save money. Buying fewer clothes means you can spend a little more on the ones that last. That’s smarter than five impulse buys that fall apart in a month. * It’s eco-friendlier. Fewer wasted outfits, fewer bags heading to donation bins. * Your style sharpens. With less clutter, you see what you actually like wearing, not just what ads told you to buy.
+-
+You save time. Mornings stop being a mini crisis. A couple of pieces, thrown together, and you’re out the door.
+
+-
+You save money. Buying fewer clothes means you can spend a little more on the ones that last. That’s smarter than five impulse buys that fall apart in a month.
+
+-
+It’s eco-friendlier. Fewer wasted outfits, fewer bags heading to donation bins.
+
+-
+Your style sharpens. With less clutter, you see what you actually like wearing, not just what ads told you to buy.
 
 And maybe the underrated benefit? You feel calmer. There’s something satisfying about a closet that makes sense.
 
