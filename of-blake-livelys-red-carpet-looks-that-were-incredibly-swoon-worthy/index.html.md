@@ -3,7 +3,7 @@ title: "7 of Blake Lively's Red Carpet Looks That Were Incredibly Swoon-worthy .
 description: "Cannes Film Festival; Cannes Film Festival; Cannes Film Festival; Met Gala; 'savages' Premiere; More ..."
 url: "https://fashion.allwomenstalk.com/of-blake-livelys-red-carpet-looks-that-were-incredibly-swoon-worthy/"
 category: "fashion"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 of Blake Lively's Red Carpet Looks That Were Incredibly Swoon\-worthy ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of MANY swoon-worthy red carpe
 
 ## Related Posts
 
-- [redheads in emerald green](https://hair.allwomenstalk.com/celebrities-with-red-hair-who-wore-it-best/)
-- [met gala 2014](https://fashion.allwomenstalk.com/red-carpet-fashions-at-the-met-gala/)
-- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
-- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
 - [oprah met gala](https://fashion.allwomenstalk.com/a-look-at-oscar-de-la-rentas-most-iconic-red-carpet-gowns/)
+- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
+- [celebrities who show too much skin](https://celebs.allwomenstalk.com/worst-dressed-celebrities-who-need-a-fashion-makeover/)
 - [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
+- [met gala 2014](https://fashion.allwomenstalk.com/red-carpet-fashions-at-the-met-gala/)
+- [redheads in emerald green](https://hair.allwomenstalk.com/celebrities-with-red-hair-who-wore-it-best/)
+- [female celebrities in jeans](https://celebs.allwomenstalk.com/celebrities-wearing-ripped-jeans-who-wore-it-best/)
+- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
 - [monique lhuillier famous works](https://fashion.allwomenstalk.com/celebrities-in-monique-lhuillier-who-wore-it-best/)
 - [dave skylark nicki minaj](https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/)
-- [celebrities who show too much skin](https://celebs.allwomenstalk.com/worst-dressed-celebrities-who-need-a-fashion-makeover/)
-- [female celebrities in jeans](https://celebs.allwomenstalk.com/celebrities-wearing-ripped-jeans-who-wore-it-best/)
 - [8 Amazing Diane Kruger Red Carpet Looks ...](https://allwomenstalk.com/8-amazing-diane-kruger-red-carpet-looks/)
 - [7 Ravishing Red Dresses ...](https://allwomenstalk.com/ravishing-red-dresses/)
 

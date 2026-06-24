@@ -3,7 +3,7 @@ title: "8 Things Not to do at a Wedding ..."
 description: "Don’t Tell the Bride or Groom That They’re Making a Mistake; Don’t ‘object’ when the Preacher Asks for Any Objections; Don’t Taste the Cake No Matter How Good It Looks; Don’t Tell the Bride She Looks Fat; Don’t Overdo the Drinking; More ..."
 url: "https://fashion.allwomenstalk.com/8-things-not-to-do-at-a-wedding/"
 category: "fashion"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 8 Things Not to do at a Wedding ...
@@ -48,16 +48,16 @@ Top Photo Credit: [B2COLD](https://www.flickr.com/photos/b2cold/569732635/)
 
 ## Related Posts
 
-- [dating game bloopers](https://allwomenstalk.com/10-dating-bloopers-you-just-have-to-avoid/)
-- [things to do if you were president](https://allwomenstalk.com/10-things-id-ban-if-i-were-president/)
-- [How Not to Bottle Feed](https://allwomenstalk.com/how-not-to-bottle-feed/)
-- [how do i shut the phone off](https://allwomenstalk.com/8-places-to-turn-off-your-cell-phone/)
-- [things we all do but never admit](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
-- [no-break ups](https://allwomenstalk.com/10-break-up-no-nos/)
-- [things not to tell your boyfriend](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
-- [disadvantages of watching horror movies](https://allwomenstalk.com/9-dumb-things-to-say-and-do-in-a-horror-movie/)
-- [first date mistakes](https://allwomenstalk.com/common-first-date-mistakes-you-should-avoid/)
 - [10 Things to Not do in Bed ...](https://allwomenstalk.com/10-things-to-not-do-in-bed/)
+- [how do i shut the phone off](https://allwomenstalk.com/8-places-to-turn-off-your-cell-phone/)
+- [things to do if you were president](https://allwomenstalk.com/10-things-id-ban-if-i-were-president/)
+- [no-break ups](https://allwomenstalk.com/10-break-up-no-nos/)
+- [disadvantages of watching horror movies](https://allwomenstalk.com/9-dumb-things-to-say-and-do-in-a-horror-movie/)
+- [things we all do but never admit](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
+- [How Not to Bottle Feed](https://allwomenstalk.com/how-not-to-bottle-feed/)
+- [dating game bloopers](https://allwomenstalk.com/10-dating-bloopers-you-just-have-to-avoid/)
+- [first date mistakes](https://allwomenstalk.com/common-first-date-mistakes-you-should-avoid/)
+- [things not to tell your boyfriend](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [8 Things People Hate about Weddings ...](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [10 Wedding Etiquette Tips You Might Not Be Aware o...](https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/)
 

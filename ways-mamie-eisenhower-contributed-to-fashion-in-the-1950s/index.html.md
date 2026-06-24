@@ -3,7 +3,7 @@ title: "7 Ways Mamie Eisenhower Contributed to Fashion in the 1950s ..."
 description: "Love of Fashion; The New Look; Pink and More Pink; Extravagant Fur; Charm Bracelets; More ..."
 url: "https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/"
 category: "fashion"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Ways Mamie Eisenhower Contributed to Fashion in the 1950s ...
@@ -45,16 +45,16 @@ Marling, Karal Ann. As Seen on TV -The Visual Culture of Everyday Life in the 19
 
 ## Related Posts
 
-- [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
-- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
-- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
-- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
-- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
 - [target collaborations fall 2023](https://fashion.allwomenstalk.com/great-designer-collaborations-with-target/)
-- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
-- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
-- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
 - [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
+- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
+- [unique looking celebrities](https://fashion.allwomenstalk.com/celebrities-with-a-unique-style-who-wear-fashion-with-no-apologies/)
+- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
+- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
+- [quotes fashion designer](https://inspiration.allwomenstalk.com/best-designer-quotes-this-fashionista-holds-close-to-heart/)
+- [religion outfits](https://celebs.allwomenstalk.com/quirkiest-paloma-faith-outfits-that-we-adore/)
+- [fashion faux paux](https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/)
+- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
 - [7 Most Fashionable First Ladies ...](https://fashion.allwomenstalk.com/7-most-fashionable-first-ladies/)
 - [5 Hollywood Moms with Great Street Style ...](https://allwomenstalk.com/5-hollywood-moms-with-great-street-style/)
 

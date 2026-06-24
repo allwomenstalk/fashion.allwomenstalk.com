@@ -3,7 +3,7 @@ title: "This Professor ‍ Turned Model Proves You're Never Too Old to Be Cool .
 description: "Meet 63-year-old Lyn Slater, Who Has, until Recently, Been an Ordinary Professor at Fordham University; One Day She Went to Meet a Friend for Lunch outside the Lincoln Center during New York Fashion Week; Foreign Journalists Suddenly Surrounded Her, Mistaking Her for a Fashion Icon and Attracting Spectators; It Was a Defining Moment That Turned Lyn into an Accidental Icon; Her Blog of the Same Name, Inspired by the Experience, Soon Began Making International Waves; More ..."
 url: "https://fashion.allwomenstalk.com/this-professor-turned-model-proves-youre-never-too-old-to-be-cool/"
 category: "fashion"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # This Professor ‍ Turned Model Proves You're Never Too Old to Be Cool ...
@@ -72,16 +72,16 @@ We say yay to kicking age discrimination to the curb. Here's proof that age is n
 
 ## Related Posts
 
-- [90's Fashion We Love so Much It's Coming Back ...](https://fashion.allwomenstalk.com/90s-fashion-we-love-so-much-its-coming-back/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/misconceptions-about-fashion/)
-- [The Last Empress of Fashion ...](https://bilbr.com/the-last-empress-of-fashion/)
-- [17 Must-Know Facts about Celine Fashion House …](https://fashion.allwomenstalk.com/celine-fashion-house-facts/)
-- [Why We Have a Passion for Guy Fashion ...](https://fashion.allwomenstalk.com/why-we-have-a-passion-for-guy-fashion/)
-- [Why You *MUST* Champion Sustainable Fashion ...](https://fashion.allwomenstalk.com/why-you-must-champion-sustainable-fashion/)
-- [Wannalooks - Your One-Stop Destination for Inspira...](https://allwomenstalk.com/wannalooks-inspiration-trends-fashion/)
-- [new york aesthetics](https://allwomenstalk.com/nyc-aesthetic-how-new-yorkers-maintain-appearance/)
 - [15 Iconic Fashion Designers Who Redefined the Fash...](https://fashion.allwomenstalk.com/iconic-fashion-designers-who-shaped-industry/)
+- [The Last Empress of Fashion ...](https://bilbr.com/the-last-empress-of-fashion/)
+- [Wannalooks - Your One-Stop Destination for Inspira...](https://allwomenstalk.com/wannalooks-inspiration-trends-fashion/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/misconceptions-about-fashion/)
+- [Why We Have a Passion for Guy Fashion ...](https://fashion.allwomenstalk.com/why-we-have-a-passion-for-guy-fashion/)
+- [17 Must-Know Facts about Celine Fashion House …](https://fashion.allwomenstalk.com/celine-fashion-house-facts/)
 - [Top Fashion Brands Worldwide](https://fashion.allwomenstalk.com/top-fashion-brands-worldwide/)
+- [new york aesthetics](https://allwomenstalk.com/nyc-aesthetic-how-new-yorkers-maintain-appearance/)
+- [90's Fashion We Love so Much It's Coming Back ...](https://fashion.allwomenstalk.com/90s-fashion-we-love-so-much-its-coming-back/)
+- [Why You *MUST* Champion Sustainable Fashion ...](https://fashion.allwomenstalk.com/why-you-must-champion-sustainable-fashion/)
 - [Will Models Ever Be "IT" Again?Will Models Ever Be...](https://allwomenstalk.com/will-models-ever-be-it-againwill-models-ever-be/)
 - [A Man Who Brings out Your Best](https://allwomenstalk.com/a-man-who-brings-out-your-best/)
 

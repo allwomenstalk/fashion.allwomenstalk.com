@@ -3,7 +3,7 @@ title: "5 Gothic Fashion Trends Making a Mainstream Comeback ..."
 description: "Choker; Black Lipstick; Black Leather Jackets; Black Lace; Stack on the Black!; More ..."
 url: "https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/"
 category: "fashion"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 5 Gothic Fashion Trends Making a Mainstream Comeback ...
@@ -44,16 +44,16 @@ Find a way to include all 5 in your closet and you will rock the goth fashion tr
 
 ## Related Posts
 
-- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
+- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
 - [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
+- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
 - [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
+- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
+- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
 - [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
 - [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
-- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
-- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
 - [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
-- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
 - [7 Latest Fashion Trends to Try out ...](https://fashion.allwomenstalk.com/latest-fashion-trends-to-try-out/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 

@@ -3,7 +3,7 @@ title: "50 Absolute Best Black Friday Deals on Designer Coats for Girls Who Are 
 description: "Madewell Monsieur Wool-blend Felt Coat, $175; J.Crew Cotton-canvas Trench Coat, $210; GANNI Leopard-print Cotton-twill Coat, $221; GANNI Wool Felt-trimmed Quilted Shell down Jacket, $238; MICHAEL Michael Kors Double-breasted Leopard-print Bouclé Coat, $248; More ..."
 url: "https://fashion.allwomenstalk.com/best-black-friday-deals-on-designer-coats/"
 category: "fashion"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 50 Absolute Best Black Friday Deals on Designer Coats for Girls Who Are Not Ready for Winter ...
@@ -729,15 +729,15 @@ Find at [net-a-porter.com](https://www.net-a-porter.com/us/en/product/911567/acn
 ## Related Posts
 
 - [Denim and a Dress - Tried and Tested for Winter an...](https://allwomenstalk.com/denim-and-a-dress-tried-and-tested-for-winter-and-spring/)
-- [10 Fashionable Finds for Winter ...](https://allwomenstalk.com/10-fashionable-finds-for-winter/)
-- [Fall 2007: Leather Jackets ...](https://allwomenstalk.com/fall-leather-jackets/)
-- [what to wear if you don't like jeans](https://fashion.allwomenstalk.com/what-to-wear-in-winter-when-you-hate-jeans/)
-- [15 Hot Purple Must-Have Accessories for Fall!](https://allwomenstalk.com/hot-purple-must-have-accessories-for-fall/)
-- [Get Your Coat on, We're Going out for the Day ...](https://allwomenstalk.com/get-your-coat-on-were-going-out-for-the-day/)
 - [Haute Holiday Gift Guide: for Staying Warm ...](https://allwomenstalk.com/haute-holiday-gift-guide-for-staying-warm/)
-- [my favorite sweater](https://inspiration.allwomenstalk.com/my-favorite-sweater-by-erin-hanson/)
+- [10 Fashionable Finds for Winter ...](https://allwomenstalk.com/10-fashionable-finds-for-winter/)
 - [Compare & Contrast: Wearing a Winter White Coa...](https://allwomenstalk.com/compare-contrast-wearing-a-winter-white-coat/)
+- [15 Hot Purple Must-Have Accessories for Fall!](https://allwomenstalk.com/hot-purple-must-have-accessories-for-fall/)
+- [what to wear if you don't like jeans](https://fashion.allwomenstalk.com/what-to-wear-in-winter-when-you-hate-jeans/)
+- [my favorite sweater](https://inspiration.allwomenstalk.com/my-favorite-sweater-by-erin-hanson/)
+- [Fall 2007: Leather Jackets ...](https://allwomenstalk.com/fall-leather-jackets/)
 - [best faux fur accessories](https://fashion.allwomenstalk.com/faux-fur-wraps/)
+- [Get Your Coat on, We're Going out for the Day ...](https://allwomenstalk.com/get-your-coat-on-were-going-out-for-the-day/)
 - [8 Statement Winter Coats for Fabulous Women ...](https://fashion.allwomenstalk.com/statement-winter-coats-for-fabulous-women/)
 - [9 Most Gorgeous Designer Clothing Sale Bargains .....](https://fashion.allwomenstalk.com/most-gorgeous-designer-clothing-sale-bargains/)
 
