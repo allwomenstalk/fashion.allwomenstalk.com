@@ -3,7 +3,7 @@ title: "12 Sweet Scallop Style DIY Projects ..."
 description: "Belt; Bag; Collar; Cuffs; Skirt; More ..."
 url: "https://fashion.allwomenstalk.com/sweet-scallop-style-diy-projects/"
 category: "fashion"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 12 Sweet Scallop Style DIY Projects ...
@@ -106,16 +106,16 @@ So there you have **DIY scalloped projects** that you can try this week. These w
 
 ## Related Posts
 
-- [11 Charming Chevron DIY Projects ...](https://lifestyle.allwomenstalk.com/charming-chevron-diy-projects/)
-- [10 Darling DIY Doormats ...](https://lifestyle.allwomenstalk.com/darling-diy-doormats/)
-- [anchor crafts](https://fashion.allwomenstalk.com/gorgeous-diy-anchor-accessories/)
-- [crafts using autumn leaves](https://diy.allwomenstalk.com/fun-crafts-using-autumn-leaves/)
 - [10 Fab and Fun DIY Sunnies ...](https://fashion.allwomenstalk.com/fab-and-fun-diy-sunnies/)
-- [shell decoration ideas](https://lifestyle.allwomenstalk.com/beautiful-diy-shell-decor-projects/)
-- [10 Gorgeous DIY Gilded Craft Projects ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-gilded-craft-projects/)
-- [11 Cute and Creative DIY Cup Cozies ...](https://diy.allwomenstalk.com/cute-and-creative-diy-cup-cozies/)
+- [crafts using autumn leaves](https://diy.allwomenstalk.com/fun-crafts-using-autumn-leaves/)
 - [9 Pretty Nautical Style Pieces to DIY ...](https://lifestyle.allwomenstalk.com/pretty-nautical-style-pieces-to-diy/)
+- [10 Darling DIY Doormats ...](https://lifestyle.allwomenstalk.com/darling-diy-doormats/)
+- [11 Cute and Creative DIY Cup Cozies ...](https://diy.allwomenstalk.com/cute-and-creative-diy-cup-cozies/)
+- [11 Charming Chevron DIY Projects ...](https://lifestyle.allwomenstalk.com/charming-chevron-diy-projects/)
+- [shell decoration ideas](https://lifestyle.allwomenstalk.com/beautiful-diy-shell-decor-projects/)
 - [10 Adorable Cat DIY Projects ...](https://diy.allwomenstalk.com/adorable-cat-diy-projects/)
+- [anchor crafts](https://fashion.allwomenstalk.com/gorgeous-diy-anchor-accessories/)
+- [10 Gorgeous DIY Gilded Craft Projects ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-gilded-craft-projects/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [8 Fun Paper Doily DIY Projects ...](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 

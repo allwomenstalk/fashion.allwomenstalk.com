@@ -3,7 +3,7 @@ title: "Top 10 Fashion Videos of All Time ..."
 description: "CK One; Lanvin Fall Winter 2011 – 2012 Ad Campaign; Chanel No. 5 with Nicole Kidman; Miss Dior Cherie Commercial; Prada Presents «a Therapy»; More ..."
 url: "https://fashion.allwomenstalk.com/top-fashion-videos-of-all-time/"
 category: "fashion"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Top 10 Fashion Videos of All Time ...
@@ -56,16 +56,16 @@ Top Image Source: [fashnberry.com](https://goo.gl/Ku8Zet)
 
 ## Related Posts
 
-- [womens 80s fashion](https://fashion.allwomenstalk.com/horrendous-80s-fashion-disasters/)
-- [uniquemovies](https://fashion.allwomenstalk.com/unique-movies-for-fashion-inspiration/)
-- [designer collaboration](https://fashion.allwomenstalk.com/current-designer-collaborations-worth-checking-out/)
-- [designer apparel near me](https://fashion.allwomenstalk.com/best-luxury-stores-in-nyc/)
-- [trendy fashion house](https://fashion.allwomenstalk.com/top-fashion-houses-and-how-to-tell-them-apart/)
-- [fashion insiders](https://fashion.allwomenstalk.com/interesting-fashion-books-from-fashion-insiders/)
-- [popular fashion photographers](https://fashion.allwomenstalk.com/iconic-fashion-photographers/)
 - [celebrity collabs](https://celebs.allwomenstalk.com/best-celebrity-fashion-collaborations/)
+- [popular fashion photographers](https://fashion.allwomenstalk.com/iconic-fashion-photographers/)
+- [uniquemovies](https://fashion.allwomenstalk.com/unique-movies-for-fashion-inspiration/)
+- [fashion insiders](https://fashion.allwomenstalk.com/interesting-fashion-books-from-fashion-insiders/)
+- [designer collaboration](https://fashion.allwomenstalk.com/current-designer-collaborations-worth-checking-out/)
 - [best fashion illustrator](https://fashion.allwomenstalk.com/of-the-best-fashion-illustrators/)
 - [neutral makeup ideas](https://beauty.allwomenstalk.com/beauty-tips-from-new-york-fashion-week/)
+- [womens 80s fashion](https://fashion.allwomenstalk.com/horrendous-80s-fashion-disasters/)
+- [trendy fashion house](https://fashion.allwomenstalk.com/top-fashion-houses-and-how-to-tell-them-apart/)
+- [designer apparel near me](https://fashion.allwomenstalk.com/best-luxury-stores-in-nyc/)
 - [10 Best Street Fashion Blogs ...](https://fashion.allwomenstalk.com/best-street-fashion-blogs/)
 - [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
 

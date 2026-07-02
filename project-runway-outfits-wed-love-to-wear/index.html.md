@@ -3,7 +3,7 @@ title: "7 Project Runway Outfits We'd Love to Wear ..."
 description: "Irina Shabayeva, All-Stars Season 3; Ivy Higa, All-Stars Season 2; Justin LeBlanc, Season 12; Christopher Palu, Season 10; Maya Luz, Season 7; More ..."
 url: "https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/"
 category: "fashion"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Project Runway Outfits We'd Love to Wear ...
@@ -56,16 +56,16 @@ If you've never seen the show, it's on the Lifetime network on Thursdays at 9/8 
 
 ## Related Posts
 
-- [stylewe clothing reviews](https://fashion.allwomenstalk.com/models-whose-off-duty-style-we-cant-get-enough-of/)
+- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
 - [serena van der woodsen trench coat](https://fashion.allwomenstalk.com/most-fashionable-tv-characters-who-will-inspire-you/)
-- [fashion blogger famous](https://fashion.allwomenstalk.com/of-the-best-fashion-blogger-brand-collaborations/)
-- [fashionable music](https://fashion.allwomenstalk.com/music-festivals-with-the-most-fashionable-crowds/)
-- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrity-looks-to-be-inspired-by/)
-- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
 - [most fashionable celebrities](https://streetstyle.allwomenstalk.com/celebrities-with-the-best-street-style/)
 - [wardrobe malfunctions in public](https://fashion.allwomenstalk.com/hilarious-wardrobe-malfunctions-over-the-years/)
+- [fashion blogger famous](https://fashion.allwomenstalk.com/of-the-best-fashion-blogger-brand-collaborations/)
+- [stylewe clothing reviews](https://fashion.allwomenstalk.com/models-whose-off-duty-style-we-cant-get-enough-of/)
+- [fashionable music](https://fashion.allwomenstalk.com/music-festivals-with-the-most-fashionable-crowds/)
+- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
 - [gwen adore](https://celebs.allwomenstalk.com/of-gwen-stefanis-best-looks-that-we-adore/)
-- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
+- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrity-looks-to-be-inspired-by/)
 - [7 Beach Fashion Looks to Steal ...](https://fashion.allwomenstalk.com/beach-fashion-looks-to-steal/)
 - [7 Fashion Trends to Love from NY Fashion Week ...](https://fashion.allwomenstalk.com/fashion-trends-to-love-from-nyfw/)
 

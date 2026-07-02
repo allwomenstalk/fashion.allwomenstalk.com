@@ -3,7 +3,7 @@ title: "7 Times You Wanted to Steal Lily Collins's Style ..."
 description: "The Rome Film Festival Part One; The Rome Film Festival Part Two; Her Appearance on Lorraine; Her Airport Style; The Edit Magazine Shoot; More ..."
 url: "https://fashion.allwomenstalk.com/times-you-wanted-to-steal-lily-collinss-style/"
 category: "fashion"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Times You Wanted to Steal Lily Collins's Style ...
@@ -58,14 +58,14 @@ What’s your favorite Lily Collins look? Let me know how she’s inspired your 
 
 - [weird runway outfits](https://fashion.allwomenstalk.com/wait-till-you-see-these-bizarre-runway-pictures/)
 - [taylor swift easy outfits](https://celebs.allwomenstalk.com/times-we-wanted-to-copy-taylor-swifts-outfits/)
-- [street japanese fashion](https://fashion.allwomenstalk.com/fascinating-street-style-photos-from-japan/)
-- [jennifer lawrence style](https://celebs.allwomenstalk.com/i-want-her-style-jennifer-lawrence-looks-for-fashion-inspo/)
-- [coco chanel jewelry quotes](https://fashion.allwomenstalk.com/pieces-of-fashion-advice-from-your-favorite-designers/)
-- [gown quotes](https://fashion.allwomenstalk.com/fabulous-quotes-from-fashion-icons/)
 - [sonam kapoor fashion style](https://fashion.allwomenstalk.com/times-we-loved-sonam-kapoors-style/)
-- [maternity inspo](https://fashion.allwomenstalk.com/amazing-maternity-street-style-shots-for-fashion-inspiration/)
-- [cate blanchett street style](https://celebs.allwomenstalk.com/all-hail-the-style-queen-lets-study-cate-blanchetts-lookbook/)
+- [coco chanel jewelry quotes](https://fashion.allwomenstalk.com/pieces-of-fashion-advice-from-your-favorite-designers/)
 - [fashion magazine covers](https://fashion.allwomenstalk.com/ring-out-the-old-you-have-to-see-these-vintage-fashion-magazine-covers/)
+- [maternity inspo](https://fashion.allwomenstalk.com/amazing-maternity-street-style-shots-for-fashion-inspiration/)
+- [jennifer lawrence style](https://celebs.allwomenstalk.com/i-want-her-style-jennifer-lawrence-looks-for-fashion-inspo/)
+- [cate blanchett street style](https://celebs.allwomenstalk.com/all-hail-the-style-queen-lets-study-cate-blanchetts-lookbook/)
+- [street japanese fashion](https://fashion.allwomenstalk.com/fascinating-street-style-photos-from-japan/)
+- [gown quotes](https://fashion.allwomenstalk.com/fabulous-quotes-from-fashion-icons/)
 - [7 Beach Fashion Looks to Steal ...](https://fashion.allwomenstalk.com/beach-fashion-looks-to-steal/)
 - [7 Ways to Steal Katy Perry's Quirky Style ...](https://fashion.allwomenstalk.com/ways-to-steal-katy-perrys-quirky-style/)
 

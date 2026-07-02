@@ -3,7 +3,7 @@ title: "Discover the Secret Garden in UGG®'s New Spring Collection..."
 description: "A Symphony of Colors: Embrace the Rainbow; Elevated Comfort: Platforms Reimagined; Style Pairing: From Sun Dresses to Denim; Make it Bloom: Your Wardrobe, Your Way; Step into a New Season; More ..."
 url: "https://fashion.allwomenstalk.com/ugg-floral-platform-sandals/"
 category: "fashion"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Discover the Secret Garden in UGG®'s New Spring Collection...
