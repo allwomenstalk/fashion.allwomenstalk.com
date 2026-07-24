@@ -3,7 +3,7 @@ title: "9 Special Occasion Dresses for Women with an Hourglass Shape ..."
 description: "Pretty in Polka Dots; Sizzling under the Sea; Little Red Dress; Of Burgundy and Bows; Fun with Floral; More ..."
 url: "https://fashion.allwomenstalk.com/special-occasion-dresses-for-women-with-an-hourglass-shape/"
 category: "fashion"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 9 Special Occasion Dresses for Women with an Hourglass Shape ...
@@ -68,16 +68,16 @@ And there you have it! My grand parade of special occasion dresses for women wit
 
 ## Related Posts
 
-- [dress creative](https://fashion.allwomenstalk.com/fantastically-creative-dresses-that-will-blow-your-mind/)
-- [most amazing wedding dresses](https://wedding.allwomenstalk.com/most-gorgeous-backs-of-wedding-dresses/)
-- [shoes to wear with tea length wedding dress](https://wedding.allwomenstalk.com/tips-to-shine-in-a-short-wedding-dress/)
-- [skater dresses for women](https://fashion.allwomenstalk.com/cute-skater-dresses-for-spring/)
-- [types of frocks](https://fashion.allwomenstalk.com/different-types-of-dresses-for-different-body-types/)
-- [unique print dresses](https://fashion.allwomenstalk.com/cute-dresses-with-unique-prints-to-wear-this-fall/)
-- [modcloth refer a friend](https://fashion.allwomenstalk.com/fabulous-dresses-from-modcloth-for-the-holiday-season/)
 - [jenny packham dresses wedding](https://wedding.allwomenstalk.com/gorgeous-wedding-dresses-from-jenny-packham/)
-- [winter smocked dress](https://fashion.allwomenstalk.com/smock-dresses-that-you-can-wear-from-winter-to-spring/)
+- [modcloth refer a friend](https://fashion.allwomenstalk.com/fabulous-dresses-from-modcloth-for-the-holiday-season/)
 - [what to wear to oscars themed party](https://fashion.allwomenstalk.com/dresses-to-wear-to-an-oscar-theme-party/)
+- [skater dresses for women](https://fashion.allwomenstalk.com/cute-skater-dresses-for-spring/)
+- [most amazing wedding dresses](https://wedding.allwomenstalk.com/most-gorgeous-backs-of-wedding-dresses/)
+- [types of frocks](https://fashion.allwomenstalk.com/different-types-of-dresses-for-different-body-types/)
+- [dress creative](https://fashion.allwomenstalk.com/fantastically-creative-dresses-that-will-blow-your-mind/)
+- [unique print dresses](https://fashion.allwomenstalk.com/cute-dresses-with-unique-prints-to-wear-this-fall/)
+- [winter smocked dress](https://fashion.allwomenstalk.com/smock-dresses-that-you-can-wear-from-winter-to-spring/)
+- [shoes to wear with tea length wedding dress](https://wedding.allwomenstalk.com/tips-to-shine-in-a-short-wedding-dress/)
 - [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)
 - [9 Stylish Swimsuits for plus-Sized Girls ...](https://fashion.allwomenstalk.com/stylish-swimsuits-for-plus-sized-girls/)
 

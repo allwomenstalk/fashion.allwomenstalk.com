@@ -3,7 +3,7 @@ title: "7 Most Fashionable First Ladies ..."
 description: "Jackie Kennedy-Onassis; Michelle Obama; Martha Washington; Eleanor Roosevelt; Dolley Madison; More ..."
 url: "https://fashion.allwomenstalk.com/7-most-fashionable-first-ladies/"
 category: "fashion"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Most Fashionable First Ladies ...
@@ -44,11 +44,11 @@ Top Photo Credit: [The U.S. Army](https://www.flickr.com/photos/soldiersmediacen
 
 ## Related Posts
 
+- [Fall 2007 Fashion Week Countdown ...](https://allwomenstalk.com/fall-fashion-week-countdown/)
+- [fashion 2007](https://allwomenstalk.com/spring-fashion-it-list-they-say/)
+- [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly-kiss-me-stace/)
 - [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly/)
 - [Silk Dresses: See by Chloe Vs River Island](https://allwomenstalk.com/silk-dresses-see-by-chloe-vs-river-island/)
-- [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly-kiss-me-stace/)
-- [fashion 2007](https://allwomenstalk.com/spring-fashion-it-list-they-say/)
-- [Fall 2007 Fashion Week Countdown ...](https://allwomenstalk.com/fall-fashion-week-countdown/)
 - [trend setter fashion](https://fashion.allwomenstalk.com/victoria-beckham-trend-setter/)
 - [Mom Stakes Her Claim in the Fashion Industry ...](https://allwomenstalk.com/mom-stakes-her-claim-in-the-fashion-industry/)
 - [7 Fashionable Holiday Frocks ...](https://fashion.allwomenstalk.com/fashionable-holiday-frocks/)
