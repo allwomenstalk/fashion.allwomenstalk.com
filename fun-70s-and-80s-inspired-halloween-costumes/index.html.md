@@ -3,7 +3,7 @@ title: "9 Fun 70s and 80s Inspired Halloween Costumes ..."
 description: "Strawberry Shortcake; Wonder Woman; Rainbow Brite; Smurfette; Jem; More ..."
 url: "https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/"
 category: "fashion"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 9 Fun 70s and 80s Inspired Halloween Costumes ...
@@ -68,16 +68,16 @@ Whether you grew up in the 70s, 80s, or beyond, you should try out this great co
 
 ## Related Posts
 
-- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
 - [things to do in salem during halloween](https://travel.allwomenstalk.com/stunning-shots-of-halloween-in-salem/)
-- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
-- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
-- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
-- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
-- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
-- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
 - [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
 - [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
+- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
+- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
+- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
+- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
+- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
+- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
+- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
 - [25 Awesome Celebrity Halloween Costumes ...](https://celebs.allwomenstalk.com/25-awesome-celebrity-halloween-costumes/)
 - [8 Hilarious Halloween Costumes ...](https://lifestyle.allwomenstalk.com/hilarious-halloween-costumes/)
 

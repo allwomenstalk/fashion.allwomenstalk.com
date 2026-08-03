@@ -3,7 +3,7 @@ title: "7 Fun Facts about Coco Chanel ..."
 description: "She Made the Tan Popular; She Sprayed Chanel No 5 Throughout Her Home; Her Real Name is Gabrielle; She Was a Licensed Hat Maker; She Invented the Little Black Dress; More ..."
 url: "https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/"
 category: "fashion"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Fun Facts about Coco Chanel ...
@@ -42,16 +42,16 @@ Coco Chanel is still one of the most well known names in fashion to this day. Sh
 
 ## Related Posts
 
-- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
-- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
-- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
-- [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
-- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
-- [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
+- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
 - [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
+- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
+- [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
+- [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
+- [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
+- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [Fashion Icons - 7 Things You Should Know about Coc...](https://allwomenstalk.com/fashion-icons-ae-7-things-what-you-should-know-about-coco-chanel/)
 - [7 Great Fashion Blogs ...](https://allwomenstalk.com/7-great-fashion-blogs/)
 
