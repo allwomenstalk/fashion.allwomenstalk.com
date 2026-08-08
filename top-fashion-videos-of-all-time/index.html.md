@@ -3,7 +3,7 @@ title: "Top 10 Fashion Videos of All Time ..."
 description: "CK One; Lanvin Fall Winter 2011 – 2012 Ad Campaign; Chanel No. 5 with Nicole Kidman; Miss Dior Cherie Commercial; Prada Presents «a Therapy»; More ..."
 url: "https://fashion.allwomenstalk.com/top-fashion-videos-of-all-time/"
 category: "fashion"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # Top 10 Fashion Videos of All Time ...
@@ -58,14 +58,14 @@ Top Image Source: [fashnberry.com](https://goo.gl/Ku8Zet)
 
 - [designer apparel near me](https://fashion.allwomenstalk.com/best-luxury-stores-in-nyc/)
 - [best fashion illustrator](https://fashion.allwomenstalk.com/of-the-best-fashion-illustrators/)
-- [popular fashion photographers](https://fashion.allwomenstalk.com/iconic-fashion-photographers/)
 - [womens 80s fashion](https://fashion.allwomenstalk.com/horrendous-80s-fashion-disasters/)
+- [designer collaboration](https://fashion.allwomenstalk.com/current-designer-collaborations-worth-checking-out/)
+- [neutral makeup ideas](https://beauty.allwomenstalk.com/beauty-tips-from-new-york-fashion-week/)
+- [celebrity collabs](https://celebs.allwomenstalk.com/best-celebrity-fashion-collaborations/)
+- [popular fashion photographers](https://fashion.allwomenstalk.com/iconic-fashion-photographers/)
 - [trendy fashion house](https://fashion.allwomenstalk.com/top-fashion-houses-and-how-to-tell-them-apart/)
 - [fashion insiders](https://fashion.allwomenstalk.com/interesting-fashion-books-from-fashion-insiders/)
 - [uniquemovies](https://fashion.allwomenstalk.com/unique-movies-for-fashion-inspiration/)
-- [designer collaboration](https://fashion.allwomenstalk.com/current-designer-collaborations-worth-checking-out/)
-- [celebrity collabs](https://celebs.allwomenstalk.com/best-celebrity-fashion-collaborations/)
-- [neutral makeup ideas](https://beauty.allwomenstalk.com/beauty-tips-from-new-york-fashion-week/)
 - [10 Best Street Fashion Blogs ...](https://fashion.allwomenstalk.com/best-street-fashion-blogs/)
 - [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
 

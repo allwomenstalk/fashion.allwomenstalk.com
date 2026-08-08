@@ -3,7 +3,7 @@ title: "Remembering Karl Lagerfeld: a TRUE Fashion Icon in Every Sense ..."
 description: "Kendall Jenner; Cara Delevingne; Ines De La Fressange; Gemma Ward; Stella Tennant; More ..."
 url: "https://fashion.allwomenstalk.com/remembering-karl-lagerfeld-a-true-fashion-icon-in-every-sense/"
 category: "fashion"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # Remembering Karl Lagerfeld: a TRUE Fashion Icon in Every Sense ...
@@ -106,15 +106,15 @@ We’ve seen the women who this iconic fashion legend found inspiration in, and 
 
 ## Related Posts
 
-- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
-- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
-- [From Trampy to Trendy](https://allwomenstalk.com/from-trampy-to-trendy/)
-- [the dark side of fashion](https://allwomenstalk.com/from-the-fringes-of-fashion-isabelle-explores-the-dark-side-of-charity-shopping/)
-- [Get 'in' with Tube Fashion](https://allwomenstalk.com/get-in-with-tube-fashion/)
-- [Fashion Misfit](https://allwomenstalk.com/fashion-misfit-catwalk-queen/)
-- [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
-- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
 - [gold by giles](https://allwomenstalk.com/going-for-gold-cq-checks-out-the-giles-deacon-for-new-look-collection/)
+- [the dark side of fashion](https://allwomenstalk.com/from-the-fringes-of-fashion-isabelle-explores-the-dark-side-of-charity-shopping/)
+- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
+- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
+- [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
+- [Fashion Misfit](https://allwomenstalk.com/fashion-misfit-catwalk-queen/)
+- [Get 'in' with Tube Fashion](https://allwomenstalk.com/get-in-with-tube-fashion/)
+- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
+- [From Trampy to Trendy](https://allwomenstalk.com/from-trampy-to-trendy/)
 - [his/hers boutique](https://allwomenstalk.com/standard-style-his-and-hers-fashion-forward-boutique-couture-in-the-city-fashion-blog/)
 - [Fashion Week: Marc Bouwer ...](https://allwomenstalk.com/fashion-week-marc-bouwer/)
 - [Fashion Week: Diane Von Furstenberg ...](https://allwomenstalk.com/fashion-week-diane-von-furstenberg/)

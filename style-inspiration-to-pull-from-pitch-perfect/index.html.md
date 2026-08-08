@@ -3,7 +3,7 @@ title: "Style Inspiration to Pull from Pitch Perfect 2 ..."
 description: "Gail’s Earrings; Beca’s Plaid Skirt; Go Girly with Dresses; Beca’s Leather Jackets; Go for the Classic Vest; More ..."
 url: "https://fashion.allwomenstalk.com/style-inspiration-to-pull-from-pitch-perfect/"
 category: "fashion"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # Style Inspiration to Pull from Pitch Perfect 2 ...
@@ -56,16 +56,16 @@ How are you pulling inspiration from Pitch Perfect 2? Have you seen the movie ye
 
 ## Related Posts
 
-- [kendall jenner 15 years old height](https://fashion.allwomenstalk.com/style-inspiration-to-steal-from-kendall-jenner/)
-- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
-- [feminine menswear](https://streetstyle.allwomenstalk.com/menswear-inspired-street-style-looks-to-lust-after/)
 - [scarlett johansson fringe](https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/)
-- [bad blood costumes](https://celebs.allwomenstalk.com/these-style-stars-killed-it-in-the-bad-blood-music-video/)
-- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
 - [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
-- [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
-- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
+- [bad blood costumes](https://celebs.allwomenstalk.com/these-style-stars-killed-it-in-the-bad-blood-music-video/)
+- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
 - [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
+- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
+- [feminine menswear](https://streetstyle.allwomenstalk.com/menswear-inspired-street-style-looks-to-lust-after/)
+- [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
+- [kendall jenner 15 years old height](https://fashion.allwomenstalk.com/style-inspiration-to-steal-from-kendall-jenner/)
+- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
 - [Get Winning Looks from Project Runway's First Two ...](https://allwomenstalk.com/get-winning-looks-from-project-runways-first-two-episodes/)
 - [10 Reese Witherspoon Street Style Inspirations ...](https://allwomenstalk.com/10-reese-witherspoon-street-style-inspirations/)
 
