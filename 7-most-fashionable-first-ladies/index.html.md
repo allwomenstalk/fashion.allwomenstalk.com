@@ -3,7 +3,7 @@ title: "7 Most Fashionable First Ladies ..."
 description: "Jackie Kennedy-Onassis; Michelle Obama; Martha Washington; Eleanor Roosevelt; Dolley Madison; More ..."
 url: "https://fashion.allwomenstalk.com/7-most-fashionable-first-ladies/"
 category: "fashion"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Most Fashionable First Ladies ...
@@ -48,8 +48,8 @@ Top Photo Credit: [The U.S. Army](https://www.flickr.com/photos/soldiersmediacen
 - [fashion 2007](https://allwomenstalk.com/spring-fashion-it-list-they-say/)
 - [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly-kiss-me-stace/)
 - [Silk Dresses: See by Chloe Vs River Island](https://allwomenstalk.com/silk-dresses-see-by-chloe-vs-river-island/)
-- [trend setter fashion](https://fashion.allwomenstalk.com/victoria-beckham-trend-setter/)
 - [Mom Stakes Her Claim in the Fashion Industry ...](https://allwomenstalk.com/mom-stakes-her-claim-in-the-fashion-industry/)
+- [trend setter fashion](https://fashion.allwomenstalk.com/victoria-beckham-trend-setter/)
 - [Designers Want Models Ugly](https://allwomenstalk.com/designers-want-models-ugly/)
 - [7 Fashionable Holiday Frocks ...](https://fashion.allwomenstalk.com/fashionable-holiday-frocks/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)

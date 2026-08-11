@@ -3,7 +3,7 @@ title: "8 Pretty DIY Peplum Projects ..."
 description: "Anthropologie-Inspired; Lacy Curtain; Peplum Shirt; Removable Peplum; No-Sew; More ..."
 url: "https://fashion.allwomenstalk.com/pretty-diy-peplum-projects/"
 category: "fashion"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 8 Pretty DIY Peplum Projects ...
@@ -76,16 +76,16 @@ Ready to take a plunge into these **DIY peplum projects**? Don't forget to show 
 
 ## Related Posts
 
-- [flower vase diy](https://lifestyle.allwomenstalk.com/gorgeous-and-creative-diy-flower-vases/)
-- [diy men's shirt to women's top](https://fashion.allwomenstalk.com/charming-diy-cut-out-tops-and-dresses/)
 - [camera bag diy](https://lifestyle.allwomenstalk.com/creative-diy-camera-cases/)
 - [diy wallpaper](https://lifestyle.allwomenstalk.com/awesome-diy-wallpapers/)
+- [how to make a gatsby dress](https://fashion.allwomenstalk.com/fantastic-flapper-fashion-diy-projects/)
+- [diy scarves](https://fashion.allwomenstalk.com/sweet-diy-scarves-to-sew/)
 - [adorable aprons](https://lifestyle.allwomenstalk.com/adorable-diy-aprons-to-sew/)
 - [how to make a bird cage with cardboard](https://lifestyle.allwomenstalk.com/beautiful-birdcage-craft-projects/)
-- [diy scarves](https://fashion.allwomenstalk.com/sweet-diy-scarves-to-sew/)
+- [flower vase diy](https://lifestyle.allwomenstalk.com/gorgeous-and-creative-diy-flower-vases/)
 - [upcycle old books](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
-- [how to make a gatsby dress](https://fashion.allwomenstalk.com/fantastic-flapper-fashion-diy-projects/)
 - [beaded suncatcher diy](https://lifestyle.allwomenstalk.com/sweet-diy-sun-catchers-to-make/)
+- [diy men's shirt to women's top](https://fashion.allwomenstalk.com/charming-diy-cut-out-tops-and-dresses/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 
