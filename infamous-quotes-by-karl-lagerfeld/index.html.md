@@ -3,7 +3,7 @@ title: "10 Infamous Quotes by Karl Lagerfeld ..."
 description: "Old Muse; Short Men; But Does He Sparkle in the Sunlight?; Heidi Who?; Be PC; More ..."
 url: "https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/"
 category: "fashion"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 10 Infamous Quotes by Karl Lagerfeld ...
@@ -54,16 +54,16 @@ This is just a small selection of the Chanel designer’s quotes; other favourit
 
 ## Related Posts
 
-- [loreal paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
+- [halfway there quote](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
+- [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
+- [funny coach quotes](https://lifestyle.allwomenstalk.com/funny-quotes-to-live-by/)
+- [professional advice quotes](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
+- [eleanor roosevelt quotes self-esteem](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
+- [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
+- [list of compliments for girls](https://inspiration.allwomenstalk.com/compliments-that-cheer-you-up/)
 - [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
 - [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
-- [list of compliments for girls](https://inspiration.allwomenstalk.com/compliments-that-cheer-you-up/)
-- [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
-- [halfway there quote](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
-- [eleanor roosevelt quotes self-esteem](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
-- [funny coach quotes](https://lifestyle.allwomenstalk.com/funny-quotes-to-live-by/)
-- [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
-- [professional advice quotes](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
+- [loreal paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
 - [10 Highly Influential and Most Famous Fashion Desi...](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
 - [Designer Clothes - Chanel Top 10 ...](https://allwomenstalk.com/designer-clothes-chanel-top-10/)
 

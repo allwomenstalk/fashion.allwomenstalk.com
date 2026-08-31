@@ -3,7 +3,7 @@ title: "9 Bizarre and Quirky Underwear Trends: From Visible Thongs to Victorian 
 description: "Crotchless Pants; Camis; High Waists; Girdles and Garters; Playful Panties; More ..."
 url: "https://fashion.allwomenstalk.com/bizarre-underwear-trends-from-the-last-century/"
 category: "fashion"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 9 Bizarre and Quirky Underwear Trends: From Visible Thongs to Victorian Crotchless Pants
@@ -62,16 +62,16 @@ Which underwear trends are your favorites? I’d love to rock a garter for a whi
 
 ## Related Posts
 
-- [unique tights](https://fashion.allwomenstalk.com/websites-for-unique-leggings-thatll-make-your-butt-look-amazing/)
-- [home made lingerie](https://diy.allwomenstalk.com/beautiful-lingerie-you-can-sew-yourself/)
-- [spring break swimsuits](https://fashion.allwomenstalk.com/beautiful-bathing-suits-for-your-best-spring-break-yet/)
 - [Here Are the 7 Most Common Causes of Saggy Breasts...](https://beauty.allwomenstalk.com/here-are-the-most-common-causes-of-saggy-breasts/)
-- [hourglass figure in jeans](https://fashion.allwomenstalk.com/what-kind-of-jeans-are-the-best-type-for-your-body/)
-- [lace babydoll](https://fashion.allwomenstalk.com/pieces-of-babydoll-lingerie-to-tease-and-tempt/)
 - [rippable lingerie](https://fashion.allwomenstalk.com/adorable-but-affordable-sites-for-buying-lingerie/)
-- [lingerie for valentines day](https://fashion.allwomenstalk.com/best-lingerie-options-to-wear-on-valentines-day/)
-- [warrior pose](https://fitness.allwomenstalk.com/yoga-poses-thatll-keep-your-breasts-firm-and-fabulous/)
 - [intimacy victoria secret perfume](https://love.allwomenstalk.com/intimacy-tips-from-victorias-secret-models/)
+- [lingerie for valentines day](https://fashion.allwomenstalk.com/best-lingerie-options-to-wear-on-valentines-day/)
+- [unique tights](https://fashion.allwomenstalk.com/websites-for-unique-leggings-thatll-make-your-butt-look-amazing/)
+- [spring break swimsuits](https://fashion.allwomenstalk.com/beautiful-bathing-suits-for-your-best-spring-break-yet/)
+- [hourglass figure in jeans](https://fashion.allwomenstalk.com/what-kind-of-jeans-are-the-best-type-for-your-body/)
+- [home made lingerie](https://diy.allwomenstalk.com/beautiful-lingerie-you-can-sew-yourself/)
+- [lace babydoll](https://fashion.allwomenstalk.com/pieces-of-babydoll-lingerie-to-tease-and-tempt/)
+- [warrior pose](https://fitness.allwomenstalk.com/yoga-poses-thatll-keep-your-breasts-firm-and-fabulous/)
 - [9 Fall Fashion Trends of 2011 ...](https://fashion.allwomenstalk.com/fall-fashion-trends-of/)
 - [9 Hot Trends in Luxury Swimwear for 2012 ...](https://fashion.allwomenstalk.com/hot-trends-in-luxury-swimwear-for/)
 

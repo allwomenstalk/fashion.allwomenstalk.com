@@ -3,7 +3,7 @@ title: "7 Unlikely Celebrity Style Icons ..."
 description: "Victoria Beckham; Kanye West; Detective Sarah Lund; Mary Berry; Alexa Chung; More ..."
 url: "https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/"
 category: "fashion"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Unlikely Celebrity Style Icons ...
@@ -42,15 +42,15 @@ Perhaps it’s not what you wear that matters, but rather how you wear it. Maybe
 
 ## Related Posts
 
+- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
+- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
+- [will demps wife](https://celebs.allwomenstalk.com/hottest-football-stars/)
 - [celebrities that give back](https://celebs.allwomenstalk.com/celebrities-who-give-back/)
 - [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
-- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
+- [famous tv parents](https://celebs.allwomenstalk.com/celebrities-who-are-only-famous-because-of-their-parents/)
 - [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
 - [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
 - [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
-- [famous tv parents](https://celebs.allwomenstalk.com/celebrities-who-are-only-famous-because-of-their-parents/)
-- [will demps wife](https://celebs.allwomenstalk.com/hottest-football-stars/)
-- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
 - [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)

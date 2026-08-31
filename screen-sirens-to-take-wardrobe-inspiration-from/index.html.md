@@ -3,7 +3,7 @@ title: "8 Screen Sirens to Take Wardrobe Inspiration from ..."
 description: "Audrey Hepburn; Grace Kelly; Marilyn Monroe; Katharine Hepburn; Ava Gardner; More ..."
 url: "https://fashion.allwomenstalk.com/screen-sirens-to-take-wardrobe-inspiration-from/"
 category: "fashion"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 8 Screen Sirens to Take Wardrobe Inspiration from ...
@@ -49,14 +49,14 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/6635779447914072
 ## Related Posts
 
 - [Nanette Lepore's Nautical Collection Hits My-Wardr...](https://allwomenstalk.com/nanette-lepores-nautical-collection-hits-my-wardrobecom/)
-- [celeb style guide](https://fashion.allwomenstalk.com/celeb-looks-to-copy-style-for-cheap-statement-pieces-and-more/)
-- [Fall 07 Fashion Week - NYC](https://allwomenstalk.com/fall-07-fashion-week-nyc/)
-- [dresser fashion](https://allwomenstalk.com/fashion-week-101-what-does-a-dresser-do/)
 - [Runway Beauty: Lacoste ...](https://allwomenstalk.com/runway-beauty-lacoste/)
 - [Dress like a Celeb for Less - Nicole Again](https://allwomenstalk.com/dress-like-a-celeb-for-less-nicole-again/)
+- [celeb style guide](https://fashion.allwomenstalk.com/celeb-looks-to-copy-style-for-cheap-statement-pieces-and-more/)
+- [Fall 07 Fashion Week - NYC](https://allwomenstalk.com/fall-07-fashion-week-nyc/)
+- [dress like a celebrity day](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 - [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
 - [most influential designers](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
-- [dress like a celebrity day](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
+- [dresser fashion](https://allwomenstalk.com/fashion-week-101-what-does-a-dresser-do/)
 - [Runway Beauty: BCBG ...](https://allwomenstalk.com/runway-beauty-bcbg/)
 - [8 Sexy & Chic Halloween Costumes ...](https://lifestyle.allwomenstalk.com/sexy-chic-halloween-costumes/)
 - [8 Stylish One-Piece Swimsuits ...](https://fashion.allwomenstalk.com/stylish-one-piece-swimsuits/)
