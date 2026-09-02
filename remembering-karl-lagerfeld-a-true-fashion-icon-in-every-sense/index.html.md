@@ -3,7 +3,7 @@ title: "Remembering Karl Lagerfeld: a TRUE Fashion Icon in Every Sense ..."
 description: "Kendall Jenner; Cara Delevingne; Ines De La Fressange; Gemma Ward; Stella Tennant; More ..."
 url: "https://fashion.allwomenstalk.com/remembering-karl-lagerfeld-a-true-fashion-icon-in-every-sense/"
 category: "fashion"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # Remembering Karl Lagerfeld: a TRUE Fashion Icon in Every Sense ...
@@ -107,15 +107,15 @@ We’ve seen the women who this iconic fashion legend found inspiration in, and 
 ## Related Posts
 
 - [From Trampy to Trendy](https://allwomenstalk.com/from-trampy-to-trendy/)
-- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
-- [the dark side of fashion](https://allwomenstalk.com/from-the-fringes-of-fashion-isabelle-explores-the-dark-side-of-charity-shopping/)
-- [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
 - [Fashion Misfit](https://allwomenstalk.com/fashion-misfit-catwalk-queen/)
-- [gold by giles](https://allwomenstalk.com/going-for-gold-cq-checks-out-the-giles-deacon-for-new-look-collection/)
-- [Get 'in' with Tube Fashion](https://allwomenstalk.com/get-in-with-tube-fashion/)
-- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
-- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
+- [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
 - [his/hers boutique](https://allwomenstalk.com/standard-style-his-and-hers-fashion-forward-boutique-couture-in-the-city-fashion-blog/)
+- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
+- [Get 'in' with Tube Fashion](https://allwomenstalk.com/get-in-with-tube-fashion/)
+- [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
+- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
+- [the dark side of fashion](https://allwomenstalk.com/from-the-fringes-of-fashion-isabelle-explores-the-dark-side-of-charity-shopping/)
+- [gold by giles](https://allwomenstalk.com/going-for-gold-cq-checks-out-the-giles-deacon-for-new-look-collection/)
 - [Fashion Week: Marc Bouwer ...](https://allwomenstalk.com/fashion-week-marc-bouwer/)
 - [Fashion Week: Diane Von Furstenberg ...](https://allwomenstalk.com/fashion-week-diane-von-furstenberg/)
 

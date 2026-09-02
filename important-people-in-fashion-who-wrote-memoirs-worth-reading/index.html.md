@@ -3,7 +3,7 @@ title: "7 Important People in Fashion Who Wrote Memoirs Worth Reading ..."
 description: "#GirlBoss by Sophia Amoruso; Love, Loss and What I Wore by Ilene Beckerman; Born to Be Brad by Brad Goreski; Dior by Dior; Bringing Home the Birkin by Michael Tonello; More ..."
 url: "https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/"
 category: "fashion"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 Important People in Fashion Who Wrote Memoirs Worth Reading ...
@@ -56,16 +56,16 @@ What is your favorite fashion-related memoir? Talk about your favorites in the c
 
 ## Related Posts
 
-- [sonam kapoor fashion style](https://fashion.allwomenstalk.com/times-we-loved-sonam-kapoors-style/)
-- [fashion magazine covers](https://fashion.allwomenstalk.com/ring-out-the-old-you-have-to-see-these-vintage-fashion-magazine-covers/)
-- [jennifer lawrence style](https://celebs.allwomenstalk.com/i-want-her-style-jennifer-lawrence-looks-for-fashion-inspo/)
 - [taylor swift easy outfits](https://celebs.allwomenstalk.com/times-we-wanted-to-copy-taylor-swifts-outfits/)
 - [weird runway outfits](https://fashion.allwomenstalk.com/wait-till-you-see-these-bizarre-runway-pictures/)
-- [street japanese fashion](https://fashion.allwomenstalk.com/fascinating-street-style-photos-from-japan/)
 - [lily collins audrey hepburn photoshoot](https://fashion.allwomenstalk.com/times-you-wanted-to-steal-lily-collinss-style/)
-- [coco chanel jewelry quotes](https://fashion.allwomenstalk.com/pieces-of-fashion-advice-from-your-favorite-designers/)
+- [fashion magazine covers](https://fashion.allwomenstalk.com/ring-out-the-old-you-have-to-see-these-vintage-fashion-magazine-covers/)
+- [street japanese fashion](https://fashion.allwomenstalk.com/fascinating-street-style-photos-from-japan/)
+- [sonam kapoor fashion style](https://fashion.allwomenstalk.com/times-we-loved-sonam-kapoors-style/)
+- [jennifer lawrence style](https://celebs.allwomenstalk.com/i-want-her-style-jennifer-lawrence-looks-for-fashion-inspo/)
 - [cate blanchett street style](https://celebs.allwomenstalk.com/all-hail-the-style-queen-lets-study-cate-blanchetts-lookbook/)
 - [kim kardashian classy](https://fashion.allwomenstalk.com/times-we-loved-kim-kardashian-wests-evolving-style/)
+- [coco chanel jewelry quotes](https://fashion.allwomenstalk.com/pieces-of-fashion-advice-from-your-favorite-designers/)
 - [10 Highly Influential and Most Famous Fashion Desi...](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 
