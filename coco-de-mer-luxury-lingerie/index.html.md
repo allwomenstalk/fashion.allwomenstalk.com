@@ -1,9 +1,9 @@
 ---
 title: "Why Coco de Mer's Lingerie is Turning Heads..."
-description: "Unveiling the Anthesis Collection; Designing for Every Woman; More Than Just Lingerie; Behind the Fabric; A Personal Affair; More ..."
+description: "Unveiling the Anthesis Collection; Designing for Every Woman; More Than Just Lingerie; Behind the Fabric; A Personal Affair"
 url: "https://fashion.allwomenstalk.com/coco-de-mer-luxury-lingerie/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Why Coco de Mer's Lingerie is Turning Heads...

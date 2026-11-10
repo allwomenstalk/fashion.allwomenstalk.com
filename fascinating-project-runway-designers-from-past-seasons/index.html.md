@@ -1,9 +1,9 @@
 ---
 title: "7 Fascinating Project Runway Designers from past Seasons ..."
-description: "Christian Siriano – Season 4, Winner; Austin Scarlett – Season 1, 4th Place; Mondo Guerra – Season 8, Runner-up; Chris March – Season 4, 4th Place; Michael Costello –Season 8, 4th Place; More ..."
+description: "Christian Siriano – Season 4, Winner; Austin Scarlett – Season 1, 4th Place; Mondo Guerra – Season 8, Runner-up; Chris March – Season 4, 4th Place"
 url: "https://fashion.allwomenstalk.com/fascinating-project-runway-designers-from-past-seasons/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Fascinating Project Runway Designers from past Seasons ...
@@ -56,16 +56,16 @@ After twelve seasons of Project Runway, I am still as excited to watch season th
 
 ## Related Posts
 
-- [lucy hale style](https://celebs.allwomenstalk.com/fantastic-street-style-looks-from-lucy-hale/)
-- [naya fashion](https://celebs.allwomenstalk.com/delightful-street-style-looks-from-naya-rivera/)
 - [mary kate olsen street style](https://celebs.allwomenstalk.com/lovely-street-style-looks-from-ashley-olsen-to-recreate/)
-- [kourtney kardashian favorite color](https://celebs.allwomenstalk.com/delightful-street-style-looks-from-kourtney-kardashian/)
 - [fabio project runway](https://celebs.allwomenstalk.com/hottest-male-designers-on-project-runway/)
-- [brandy melville entrance](https://fashion.allwomenstalk.com/brandy-melville-looks-for-fashion-inspiration/)
+- [lucy hale style](https://celebs.allwomenstalk.com/fantastic-street-style-looks-from-lucy-hale/)
+- [princess diana green dress](https://fashion.allwomenstalk.com/of-princess-dianas-best-looks-that-we-cant-get-over/)
 - [whitney port skincare](https://celebs.allwomenstalk.com/great-street-style-looks-from-whitney-port/)
+- [naya fashion](https://celebs.allwomenstalk.com/delightful-street-style-looks-from-naya-rivera/)
+- [brandy melville entrance](https://fashion.allwomenstalk.com/brandy-melville-looks-for-fashion-inspiration/)
+- [kourtney kardashian favorite color](https://celebs.allwomenstalk.com/delightful-street-style-looks-from-kourtney-kardashian/)
 - [kelly rowland's styles](https://streetstyle.allwomenstalk.com/lovely-street-style-looks-from-kelly-rowland/)
 - [adrienne bailon 2000s fashion](https://streetstyle.allwomenstalk.com/adorable-street-style-looks-from-adrienne-bailon/)
-- [princess diana green dress](https://fashion.allwomenstalk.com/of-princess-dianas-best-looks-that-we-cant-get-over/)
 - [8 Fabulous Celebrity Designers ...](https://allwomenstalk.com/8-fabulous-celebrity-designers/)
 - [7 of My Favorite Designers from Fall Fashion in Pa...](https://allwomenstalk.com/7-of-my-favorite-designers-from-fall-fashion-in-paris/)
 

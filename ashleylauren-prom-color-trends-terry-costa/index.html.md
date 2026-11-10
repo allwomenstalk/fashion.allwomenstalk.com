@@ -3,7 +3,7 @@ title: "Ashleylauren selections available for prom 2027 on Terry Costa"
 description: "See how prom color trends shape Ashleylauren selections for 2027, from forecasted hues to flattering palettes, fabrics and finishes."
 url: "https://fashion.allwomenstalk.com/ashleylauren-prom-color-trends-terry-costa/"
 category: "fashion"
-last_updated: "2026-10-23"
+last_updated: "2026-11-10"
 ---
 
 # Ashleylauren selections available for prom 2027 on Terry Costa

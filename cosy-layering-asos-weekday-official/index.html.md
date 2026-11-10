@@ -1,9 +1,9 @@
 ---
 title: "Embrace Cosy Vibes With ASOS and Weekday Official’s Outerwear Edit ..."
-description: "Shearling Drama: The Statement Collar; Trench Coat, Reimagined; Details, Details, Details; Puffer Jackets: The Cosy Cocoon; School-Girl Energy Meets Cosy Layers; More ..."
+description: "Shearling Drama: The Statement Collar; Trench Coat, Reimagined; Details, Details, Details; Puffer Jackets: The Cosy Cocoon"
 url: "https://fashion.allwomenstalk.com/cosy-layering-asos-weekday-official/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Embrace Cosy Vibes With ASOS and Weekday Official’s Outerwear Edit ...

@@ -1,9 +1,9 @@
 ---
 title: "Experience Everyday Luxury with Coco de Mer’s Arella Open Knicker"
-description: "The Divine Feminine in Navy Lace; Every Angle, Every Detail: Why the Arella Knicker Stands Out; Sensuality Meets Comfort: Everyday Luxury; Styling the Arella: Beyond the Bedroom; Price Point and Value: Investing in Yourself; More ..."
+description: "The Divine Feminine in Navy Lace; Every Angle, Every Detail: Why the Arella Knicker Stands Out; Sensuality Meets Comfort: Everyday Luxury"
 url: "https://fashion.allwomenstalk.com/arella-high-waisted-open-knicker-coco-de-mer/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Experience Everyday Luxury with Coco de Mer’s Arella Open Knicker

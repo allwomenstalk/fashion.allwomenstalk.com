@@ -1,9 +1,9 @@
 ---
 title: "Speedy Survey (please, My Grade Depends on It)?"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Hello, for my AP Govt/Econ. class, we are learning about polls, so as an assignment, we each have to distribute surveys. I thought it would be cool to do an…"
 url: "https://fashion.allwomenstalk.com/speedy-survey-please-my-grade-depends-on-it/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Speedy Survey \(please, My Grade Depends on It\)?
@@ -12,16 +12,16 @@ Hello, for my AP Govt/Econ. class, we are learning about polls, so as an assignm
 
 ## Related Posts
 
-- [Got Question, We Have Answers](https://allwomenstalk.com/got-question-we-have-answers/)
-- [fashion mirror](https://allwomenstalk.com/would-you-trust-a-mirror-for-fashion-advice/)
-- [What's Your Val Day Plan?](https://allwomenstalk.com/whats-your-val-day-plan/)
 - [When Did I Become Such a Geek?](https://allwomenstalk.com/when-did-i-become-such-a-geek/)
 - [when a man opens the door for you](https://allwomenstalk.com/when-a-man-opens-a-door-for-you-do-you-slam-it-in-his-face/)
+- [fashion mirror](https://allwomenstalk.com/would-you-trust-a-mirror-for-fashion-advice/)
 - [What do You Mean Back up?](https://allwomenstalk.com/what-do-you-mean-back-up/)
-- [What Did You Watch Last Night?](https://allwomenstalk.com/what-did-you-watch-last-night/)
-- [Does the IPhone Really Need Cleavage to Help Incre...](https://allwomenstalk.com/does-the-iphone-really-need-cleavage-to-help-increase-its-popularity/)
-- [Sleepovers Are More Popular than MySpace?](https://allwomenstalk.com/sleepovers-are-more-popular-than-myspace/)
+- [What's Your Val Day Plan?](https://allwomenstalk.com/whats-your-val-day-plan/)
 - [What Are You Going to do on This Sunday?](https://allwomenstalk.com/what-are-you-going-to-do-on-this-sunday/)
+- [What Did You Watch Last Night?](https://allwomenstalk.com/what-did-you-watch-last-night/)
+- [Got Question, We Have Answers](https://allwomenstalk.com/got-question-we-have-answers/)
+- [Sleepovers Are More Popular than MySpace?](https://allwomenstalk.com/sleepovers-are-more-popular-than-myspace/)
+- [Does the IPhone Really Need Cleavage to Help Incre...](https://allwomenstalk.com/does-the-iphone-really-need-cleavage-to-help-increase-its-popularity/)
 - [Please Help!! Im Confused?!?](https://weightloss.allwomenstalk.com/please-help-im-confused/)
 - [How Good is Good?](https://allwomenstalk.com/how-good-is-good/)
 

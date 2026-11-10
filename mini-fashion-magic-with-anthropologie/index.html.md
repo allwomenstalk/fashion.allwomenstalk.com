@@ -1,9 +1,9 @@
 ---
 title: "Discover the Magic of Mini Fashion with Anthropologie's Latest Collection..."
-description: "The Colette Shorts: Casual Elegance Reimagined; The Pleated Perfection: A Skirt for All Seasons; More ..."
+description: "The Colette Shorts: Casual Elegance Reimagined; The Pleated Perfection: A Skirt for All Seasons"
 url: "https://fashion.allwomenstalk.com/mini-fashion-magic-with-anthropologie/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Discover the Magic of Mini Fashion with Anthropologie's Latest Collection...

@@ -1,9 +1,9 @@
 ---
 title: "IG Goddess Turns Haitian Beauty into NYC Fashion and It's Unbelievable! ..."
-description: "#1; #2; #3; #4; #5; More ..."
+description: "#1; #2; #3; #4; #5"
 url: "https://fashion.allwomenstalk.com/ig-goddess-turns-haitian-beauty-into-nyc-fashion-and-its-unbelievable/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # IG Goddess Turns Haitian Beauty into NYC Fashion and It's Unbelievable! ...
@@ -62,16 +62,16 @@ Paola "Pao Pao" Mathé has transferred her own Haitian style to NYC and the city
 
 ## Related Posts
 
-- [clothing inventions](https://fashion.allwomenstalk.com/fashion-inventions-that-changed-the-world/)
-- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
-- [shay mitchell look alike](https://fashion.allwomenstalk.com/shay-mitchells-style-inspiration/)
 - [minna fashion fotos](https://allwomenstalk.com/haute-couture-minna-fashion/)
-- [models size 8](https://fashion.allwomenstalk.com/truths-about-plus-size-modeling-revealed/)
-- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
+- [aoc suits](https://allwomenstalk.com/future-of-power-dressing-how-aoc-uses-fashion-to-empower-generation/)
 - [winter street style new york](https://streetstyle.allwomenstalk.com/the-latest-nyc-street-style/)
-- [pictures of audrey hepburn](https://fashion.allwomenstalk.com/50-pictures-of-audrey-hepburn/)
 - [why is karl lagerfeld famous](https://fashion.allwomenstalk.com/remembering-karl-lagerfeld-a-true-fashion-icon-in-every-sense/)
+- [clothing inventions](https://fashion.allwomenstalk.com/fashion-inventions-that-changed-the-world/)
 - [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
+- [shay mitchell look alike](https://fashion.allwomenstalk.com/shay-mitchells-style-inspiration/)
+- [pictures of audrey hepburn](https://fashion.allwomenstalk.com/50-pictures-of-audrey-hepburn/)
+- [riche stylo timeless](https://fashion.allwomenstalk.com/secrets-to-timeless-style-revealed-by-los-angeles-tailor-and-designer-saverio-pisano/)
+- [models size 8](https://fashion.allwomenstalk.com/truths-about-plus-size-modeling-revealed/)
 - [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 

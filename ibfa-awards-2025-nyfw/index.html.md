@@ -1,9 +1,9 @@
 ---
 title: "IBFA Awards 2025 Celebrated Global Talent in Beauty and Fashion during New York Fashion Week!"
-description: "Arailym Kaldarbek; Aisha Suramaeva; Dauriya Beissekova; Alsu Sharafutdinova; Roksolana Trach; More ..."
+description: "Arailym Kaldarbek; Aisha Suramaeva; Dauriya Beissekova; Alsu Sharafutdinova; Roksolana Trach"
 url: "https://fashion.allwomenstalk.com/ibfa-awards-2025-nyfw/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # IBFA Awards 2025 Celebrated Global Talent in Beauty and Fashion during New York Fashion Week!

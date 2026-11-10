@@ -1,9 +1,9 @@
 ---
 title: "These Celebrities Celebrated Halloween Early This Weekend with Cool Costumes ..."
-description: "Lucy Hale; Paris Hilton; Colton Haynes; Melanie Iglesias; Kelly Osbourne; More ..."
+description: "Lucy Hale; Paris Hilton; Colton Haynes; Melanie Iglesias; Kelly Osbourne"
 url: "https://fashion.allwomenstalk.com/these-celebrities-celebrated-halloween-early-this-weekend-with-cool-costumes/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # These Celebrities Celebrated Halloween Early This Weekend with Cool Costumes ...

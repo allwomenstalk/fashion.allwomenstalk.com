@@ -1,9 +1,9 @@
 ---
 title: "Why Fashion Enthusiasts Are Buzzing About Kate Spade’s Luxe Line..."
-description: "The Elegance of Art Deco in Modern Fashion; Embrace the Bold with the Molten Collection; Creating Timeless Moments with Kate Spade; Styling Tips: Everyday Glamour with Confidence; Join the Conversation...; More ..."
+description: "The Elegance of Art Deco in Modern Fashion; Embrace the Bold with the Molten Collection; Creating Timeless Moments with Kate Spade"
 url: "https://fashion.allwomenstalk.com/kate-spade-deco-chic-collection/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Why Fashion Enthusiasts Are Buzzing About Kate Spade’s Luxe Line...

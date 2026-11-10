@@ -1,9 +1,9 @@
 ---
 title: "Gucci's Fashion-Forward Looks Shine at Caring for Women Dinner ..."
-description: "A Night of Elegance and Purpose...; Kirsten Dunst's Timeless Grace...; Fashion with a Cause...; More ..."
+description: "A Night of Elegance and Purpose...; Kirsten Dunst's Timeless Grace...; Fashion with a Cause..."
 url: "https://fashion.allwomenstalk.com/guccis-glamorous-night-caring-for-women/"
 category: "accessories"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Gucci's Fashion\-Forward Looks Shine at Caring for Women Dinner ...

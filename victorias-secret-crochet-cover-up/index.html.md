@@ -1,9 +1,9 @@
 ---
 title: "The All-Day Appeal of Swim Cover-Ups You Need to Know About..."
-description: "The Art of the Crochet Cover-Up; Intricate Design Meets Comfort; Transitioning from Day to Night; Easy Care for a Busy Lifestyle; The Versatile Wardrobe Staple; More ..."
+description: "The Art of the Crochet Cover-Up; Intricate Design Meets Comfort; Transitioning from Day to Night; Easy Care for a Busy Lifestyle"
 url: "https://fashion.allwomenstalk.com/victorias-secret-crochet-cover-up/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The All\-Day Appeal of Swim Cover\-Ups You Need to Know About...

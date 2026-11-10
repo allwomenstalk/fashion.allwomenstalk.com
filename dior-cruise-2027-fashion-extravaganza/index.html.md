@@ -1,9 +1,9 @@
 ---
 title: "Tailoring Takes a Turn at Dior's Latest Show..."
-description: "Vibrant Colors and Bold Statements; Artistic Collaboration with Ed Ruscha; The Iconic Accacias Jacket Revamp; Hats Off to Philip Treacy; Tailoring with a Twist; More ..."
+description: "Vibrant Colors and Bold Statements; Artistic Collaboration with Ed Ruscha; The Iconic Accacias Jacket Revamp; Hats Off to Philip Treacy"
 url: "https://fashion.allwomenstalk.com/dior-cruise-2027-fashion-extravaganza/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Tailoring Takes a Turn at Dior's Latest Show...

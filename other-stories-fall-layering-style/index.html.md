@@ -1,9 +1,9 @@
 ---
 title: "Elevate Your Autumn Wardrobe with Colorful Knits and Leather ..."
-description: "Color Play and Fabric Contrasts: Where Fall Begins; Jersey Basics with a Twist; The Art of Oversized Knits; Bold Red Knits and Corduroy Confidence; Mixing It Up: How to Style & Other Stories Pieces for Every Occasion; More ..."
+description: "Color Play and Fabric Contrasts: Where Fall Begins; Jersey Basics with a Twist; The Art of Oversized Knits; Bold Red Knits and Corduroy Confidence"
 url: "https://fashion.allwomenstalk.com/other-stories-fall-layering-style/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Elevate Your Autumn Wardrobe with Colorful Knits and Leather ...

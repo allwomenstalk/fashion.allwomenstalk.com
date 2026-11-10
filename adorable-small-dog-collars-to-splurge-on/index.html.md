@@ -1,9 +1,9 @@
 ---
 title: "8 Adorable Small Dog Collars to Splurge on ..."
-description: "Pink Rhinestones; Plaid & Silver; Leopard Print Small Dog Collars; Fifth Avenue Small Dog Collar; Hippy Puppy; More ..."
+description: "Pink Rhinestones; Plaid & Silver; Leopard Print Small Dog Collars; Fifth Avenue Small Dog Collar; Hippy Puppy"
 url: "https://fashion.allwomenstalk.com/adorable-small-dog-collars-to-splurge-on/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Adorable Small Dog Collars to Splurge on ...
@@ -71,15 +71,15 @@ While we might not all be as rich as Paris Hilton and be able to deck our dogs o
 ## Related Posts
 
 - [show me a picture of cute dogs](https://allwomenstalk.com/30-pictures-of-the-cutest-dogs-ever/)
+- [cutest pet pictures](https://allwomenstalk.com/make-your-day-cutest-pets-ever/)
+- [cats for girls](https://allwomenstalk.com/10-reasons-why-cats-are-a-girls-best-friend/)
 - [cutest youtube videos](https://allwomenstalk.com/10-cutest-animal-videos-on-youtube/)
 - [goldenbleu handbags](https://allwomenstalk.com/my-lovely-goldenbleu-humps/)
-- [cats for girls](https://allwomenstalk.com/10-reasons-why-cats-are-a-girls-best-friend/)
-- [pets with disabilities](https://allwomenstalk.com/pets-with-disabilities-rescue/)
 - [wild animal portraits](https://allwomenstalk.com/10-amazing-portraits-of-wild-animals/)
-- [Urgent News: Domestic Dogs Becoming 'Faux' Fur?](https://allwomenstalk.com/urgent-news-domestic-dogs-becoming-faux-fur/)
-- [christmas photo with pets](https://allwomenstalk.com/pictures-of-the-cutest-christmas-pets/)
-- [cutest pet pictures](https://allwomenstalk.com/make-your-day-cutest-pets-ever/)
 - [shaved cat photos](https://allwomenstalk.com/shaved-pussies/)
+- [christmas photo with pets](https://allwomenstalk.com/pictures-of-the-cutest-christmas-pets/)
+- [pets with disabilities](https://allwomenstalk.com/pets-with-disabilities-rescue/)
+- [Urgent News: Domestic Dogs Becoming 'Faux' Fur?](https://allwomenstalk.com/urgent-news-domestic-dogs-becoming-faux-fur/)
 - [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
 - [8 Adorable Cat Breeds ...](https://lifestyle.allwomenstalk.com/adorable-cat-breeds/)
 

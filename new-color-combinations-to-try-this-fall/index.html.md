@@ -1,9 +1,9 @@
 ---
 title: "7 New Color Combinations to Try This Fall ..."
-description: "Black and Maroon; Gold and Burgundy; Muted Green and Black; Red and Beige; Yellow and Cardinal; More ..."
+description: "Black and Maroon; Gold and Burgundy; Muted Green and Black; Red and Beige; Yellow and Cardinal"
 url: "https://fashion.allwomenstalk.com/new-color-combinations-to-try-this-fall/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 New Color Combinations to Try This Fall ...
@@ -57,15 +57,15 @@ These seven selections are highly complementary. They are flattering when worn w
 ## Related Posts
 
 - [we're of course trend](https://fashion.allwomenstalk.com/recurring-fashion-trends-from-my-childhood-and-yours/)
-- [60 fashion trends](https://fashion.allwomenstalk.com/60s-fashion-trends-you-can-still-wear-today/)
-- [overall trends](https://fashion.allwomenstalk.com/overall-trends-that-you-can-rock-this-year/)
-- [spring 2014 fashion trends](https://fashion.allwomenstalk.com/spring-trends-you-can-start-wearing-now/)
-- [make up trends winter](https://makeup.allwomenstalk.com/wicked-winter-makeup-trends-to-look-out-for/)
-- [most fashionable watches](https://fashion.allwomenstalk.com/most-trendy-watches/)
-- [seventies fashion trends](https://fashion.allwomenstalk.com/fabulous-fashion-trends-from-the-70s-that-you-can-rock-today/)
-- [2013 trends](https://fashion.allwomenstalk.com/best-trends-of-that-we-all-loved/)
 - [lfw trends](https://fashion.allwomenstalk.com/lfw-trends-that-you-should-embrace-now/)
+- [60 fashion trends](https://fashion.allwomenstalk.com/60s-fashion-trends-you-can-still-wear-today/)
+- [spring 2014 fashion trends](https://fashion.allwomenstalk.com/spring-trends-you-can-start-wearing-now/)
 - [food trends 2014](https://food.allwomenstalk.com/food-trends-we-cant-wait-for-in/)
+- [2013 trends](https://fashion.allwomenstalk.com/best-trends-of-that-we-all-loved/)
+- [most fashionable watches](https://fashion.allwomenstalk.com/most-trendy-watches/)
+- [overall trends](https://fashion.allwomenstalk.com/overall-trends-that-you-can-rock-this-year/)
+- [seventies fashion trends](https://fashion.allwomenstalk.com/fabulous-fashion-trends-from-the-70s-that-you-can-rock-today/)
+- [make up trends winter](https://makeup.allwomenstalk.com/wicked-winter-makeup-trends-to-look-out-for/)
 - [8 Fashion Colors for Fall 2011 ...](https://fashion.allwomenstalk.com/fashion-colors-for-fall/)
 - [7 Winter Color Trends ...](https://allwomenstalk.com/7-winter-color-trends/)
 

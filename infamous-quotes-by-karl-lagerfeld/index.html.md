@@ -1,9 +1,9 @@
 ---
 title: "10 Infamous Quotes by Karl Lagerfeld ..."
-description: "Old Muse; Short Men; But Does He Sparkle in the Sunlight?; Heidi Who?; Be PC; More ..."
+description: "Old Muse; Short Men; But Does He Sparkle in the Sunlight?; Heidi Who?; Be PC"
 url: "https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/"
 category: "fashion"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 10 Infamous Quotes by Karl Lagerfeld ...
@@ -54,16 +54,16 @@ This is just a small selection of the Chanel designer’s quotes; other favourit
 
 ## Related Posts
 
-- [professional advice quotes](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
-- [halfway there quote](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 - [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
-- [eleanor roosevelt quotes self-esteem](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
-- [list of compliments for girls](https://inspiration.allwomenstalk.com/compliments-that-cheer-you-up/)
-- [loreal paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
-- [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
-- [funny coach quotes](https://lifestyle.allwomenstalk.com/funny-quotes-to-live-by/)
 - [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
+- [halfway there quote](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
+- [loreal paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
+- [funny coach quotes](https://lifestyle.allwomenstalk.com/funny-quotes-to-live-by/)
+- [professional advice quotes](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
+- [eleanor roosevelt quotes self-esteem](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
 - [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
+- [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
+- [list of compliments for girls](https://inspiration.allwomenstalk.com/compliments-that-cheer-you-up/)
 - [10 Highly Influential and Most Famous Fashion Desi...](https://fashion.allwomenstalk.com/highly-influential-and-most-famous-fashion-designers/)
 - [Designer Clothes - Chanel Top 10 ...](https://allwomenstalk.com/designer-clothes-chanel-top-10/)
 
