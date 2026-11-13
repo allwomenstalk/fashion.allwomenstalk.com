@@ -3,7 +3,7 @@ title: "8 Affordable Spring Trends ..."
 description: "White Midi Dress - Topshop Button Front Midi Dress; Coloured Bag - ASOS Slot through Portfolio Clutch; Minimalist Sandals - Topshop Houpla Leather Sandals"
 url: "https://fashion.allwomenstalk.com/affordable-spring-trends/"
 category: "fashion"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 8 Affordable Spring Trends ...
@@ -21,7 +21,7 @@ Spring fashion is heavily focused on light colours. A white dress is the perfect
 
 ![Coloured Bag - ASOS Slot through Portfolio Clutch](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/fashion/2012/01/2_coloured-bag-asos-slot-through-portfolio-clutch_560x375.jpg)
 
-**Price:** $35.81 at [us.asos.com](https://goo.gl/K7BV1B).
+**Price:** $35.81 at [us.asos.com](https://www.asos.com/).
 A coloured bag is a must-have accessory for spring. This oversized clutch by ASOS comes in a cheery yellow colour and would be an excellent way to wear this **spring trend**. Team it with a fresh white dress or cropped pants for a chic spring look.
 
 ## 3. Minimalist Sandals - Topshop Houpla Leather Sandals
@@ -42,7 +42,7 @@ Full, skater style skirts are a chic choice for spring. This one comes in a ligh
 
 ![Statement Sunglasses - Pieces Oblong Sunglasses](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/fashion/2012/01/5_statement-sunglasses-pieces-oblong-sunglasses_560x272.jpg)
 
-**Price:** $25.07 at [us.asos.com](https://goo.gl/bbv0L1).
+**Price:** $25.07 at [us.asos.com](https://www.asos.com/).
 A pair of statement making sunglasses is one of the hottest **spring trends**. It’s also one of the easiest to work into your wardrobe. These Pieces sunglasses have an oversized opaque frame with a slight cat-eye silhouette.
 
 ## 6. Denim - Topshop Moto Fitted Denim Shirt
@@ -56,7 +56,7 @@ You can’t go wrong with a classic styled denim shirt. A light denim shirt is a
 
 ![Cuff Bracelets - ASOS Smooth Double Cuffs](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/fashion/2012/01/7_cuff-bracelets-asos-smooth-double-cuffs_560x302.jpg)
 
-**Price:** $32.32 at [us.asos.com](https://goo.gl/JRRwNQ)
+**Price:** $32.32 at [us.asos.com](https://www.asos.com/)
 Adorn your wrists with some sleek metal cuffs this spring. This **spring trend** is a quick and effective way to update your everyday jewellery. The look is quite warrior inspired. Wear a cuff on each wrist or one at a time.
 
 ## 8. Pastel Pants – Topshop High Waisted Chinos
@@ -72,16 +72,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21503303)
 
 ## Related Posts
 
-- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
-- [Spring Fashion Trend: Beige Leather ...](https://fashion.allwomenstalk.com/spring-fashion-trend-beige-leather/)
-- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
+- [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [5 Flowers for 2011 ...](https://gardening.allwomenstalk.com/flowers-for/)
+- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
+- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
+- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
-- [Beach Trends- Nautical ...](https://allwomenstalk.com/beach-trends-nautical/)
-- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [2006 trends](https://allwomenstalk.com/trendy-year-wrap-up/)
-- [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
+- [Beach Trends- Nautical ...](https://allwomenstalk.com/beach-trends-nautical/)
+- [Spring Fashion Trend: Beige Leather ...](https://fashion.allwomenstalk.com/spring-fashion-trend-beige-leather/)
 - [8 Hot Trends for the Spring 2011 ...](https://fashion.allwomenstalk.com/hot-trends-for-the-spring/)
 - [7 Stylish Spring Fashion Trends ...](https://fashion.allwomenstalk.com/stylish-spring-fashion-trends/)
 
